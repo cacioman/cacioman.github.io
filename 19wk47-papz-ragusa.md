@@ -1,8 +1,8 @@
 # ragusa  
 
 #### della serie "percorsi alternativi pendolari zen" - wk#47 2019     
-  
-![](/19wk47ragusa.png "Piazza Ragusa (circa)")  
+    
+![](https://live.staticflickr.com/65535/49138939942_6198b0354a_c.jpg "Piazza Ragusa (circa)")  
 più o meno [tra Ferrovie Laziali e Roma Tuscolana](/19wk37-papz-laziali-tuscolana.md) - più precisamente [qui](https://goo.gl/maps/BagL4ormmo5BqD8G7) 
   
 Barbiere di piazza Ragusa (ora non c'è più, sarebbe il negozio disadorno e senza insegna con una Stella di Natale, stranamente viva, davanti la vetrina). Pare che questo barbiere (rimasto uguale così da quando aveva aperto in epoche remotissime, tipo guerre puniche) lui non faceva mai la barba. A lui la barba non piaceva farla. Faceva solo i capelli, e manco tanto volentieri.  
@@ -10,5 +10,5 @@ Dice che di questa cosa ne vantava anche. A sentire lui una volta era pure venut
 "Oh" diceva ridendo soddisfatto "gli ho massacrato la faccia!"  
 
 ---  
-[home](/papz.md)  
+[home](/papz.md) - [about me](/aboutme.md)  
 

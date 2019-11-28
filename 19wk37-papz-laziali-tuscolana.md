@@ -2,8 +2,9 @@
 
 #### della serie "percorsi alternativi pendolari zen"  
 
-![](/laziali.png "Stazione delle ferrovie laziali")  
-![](/tuscolana.png "Stazione Tuscolana")  
+
+![](https://live.staticflickr.com/65535/49138246843_0d0cd092c3_c.jpg "Stazione delle ferrovie laziali")  
+![](https://live.staticflickr.com/65535/49138740906_b0256e54cb_c.jpg "Stazione Tuscolana")  
 
 durata 35 minuti - [vedi tracciato](https://drive.google.com/open?id=1WbuM3AHBEumcpaFK8_ng-Ph12r-Jl3hR&usp=sharing)   
 
@@ -25,4 +26,4 @@ E' un periodo che incontro uomini di specchiata virilità (tipo autotrasportator
 di quando sembra che dormano, ma no: sono vigilissimi  
 
 ---  
-[home](/papz.md) 
+[home](/papz.md) - [about me](/aboutme.md) 

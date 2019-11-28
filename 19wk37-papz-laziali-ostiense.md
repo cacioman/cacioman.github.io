@@ -2,8 +2,8 @@
 
 #### della serie "percorsi alternativi pendolari zen"  
 
-![](/laziali.png "Stazione delle ferrovie laziali")  
-![](/ostiense.png "Stazione Ostiense")  
+![](https://live.staticflickr.com/65535/49138246843_0d0cd092c3_c.jpg "Stazione delle ferrovie laziali")  
+![](https://live.staticflickr.com/65535/49138741166_3970f7f36b_c.jpg "Stazione Ostiense")  
 
 durata 55 minuti - [vedi tracciato](https://drive.google.com/open?id=1lfLupIxBQTBgf8WX89Onet80jUItx0XT&usp=sharing)    
 
@@ -99,7 +99,5 @@ Ragazzo piccoletto seduto su un gradino zona Ludus Magnus. Porta uno strano pant
 
 **Celio**  - 2017  
 Padre con figlio piccolo aggrappato al manubrio di una vespa (molto vintage) che la mattina vedo spesso uscire insieme da via Capo d'Africa e dall'altra parte della strada proprio davanti a me due operai (tipo due *parquettisi* o due di una ditta di pulizie) appoggiati al cofano del furgoncino che stanno concentratissimi a guardare le foto dei sedili di un'auto da una brochure pubblicitaria .   
-
-
 ---  
-[home](/papz.md) 
+[home](/papz.md) - [about me](/aboutme.md)

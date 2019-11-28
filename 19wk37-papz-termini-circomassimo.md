@@ -2,8 +2,8 @@
 
 #### della serie "percorsi alternativi pendolari zen"  
 
-![](/termini.png "Stazione delle ferrovie laziali")  
-![](/circomassimo.png "Circo Massimo")  
+![](https://live.staticflickr.com/65535/49138939462_faf1eafed0_c.jpg "Roma Termini")  
+![](https://live.staticflickr.com/65535/49138939832_8eed04d664_c.jpg "Circo Massimo")  
 
 durata 30 minuti - [vedi tracciato](https://drive.google.com/open?id=17AkcZ-kSqDk33pwxQ-r3hHxlNlBtMcNg&usp=sharing)   
 
@@ -25,4 +25,4 @@ Di buon mattino due centurioni romani, gambe penzoloni, che se ne stanno appolla
 
 
 ---  
-[home](/papz.md) 
+[home](/papz.md) - [about me](/aboutme.md)  

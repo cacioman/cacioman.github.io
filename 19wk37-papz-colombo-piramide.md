@@ -2,10 +2,8 @@
 
 #### della serie "percorsi alternativi pendolari zen"  
 
-![](/colombo.png "zona Colombo")  
-![](/piramide.png "Piramide")  
-
-durata 30 minuti - [vedi tracciato](https://drive.google.com/open?id=1za2zOLmyQdpKxUlVYqJlKEn8KFYUkLCh&usp=sharing)    
+![](https://live.staticflickr.com/65535/49138741311_6291d1e7a8_c.jpg "zona Colombo")  
+![](https://live.staticflickr.com/65535/49138740991_d02286d225_c.jpg "Piramide")  
 
 [**cercasi Tano disperatamente**](/19wk45-papz-garbatella.md) - wk45 2019  
 di incontri sistematicamente mancati con personaggi famosi  
@@ -73,4 +71,4 @@ Su via Alessandro Severo, due anziane signore discutono tra loro della crisi. Un
 Su via Severo, un ragazzino avanza a grandi passi. Sotto il braccio tiene orgogliosamente un pallone da calcio, deve essere appena reduce dal campetto poco sotto. Vittorioso. Dietro di lui, molto più compassata, la madre bagladese in tenuta *three piece* da passeggio. Va a fare quattro chiacchiere con altre amiche bangladesi che ho appena incrociato sedute all'ombra davanti al fruttarolo di quartiere, bangladese pure quello.  
 
 ---  
-[home](/papz.md) 
+[home](/papz.md) - [about me](/aboutme.md) 

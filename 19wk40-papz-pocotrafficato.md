@@ -2,7 +2,7 @@
 
 #### della serie "percorsi alternativi pendolari zen" - wk#40 2019   
   
-![](/19wk40pocotrafficato.png "Roma - Clivo di Scauro")  
+![](https://live.staticflickr.com/65535/49138741591_4146eb63b7_c.jpg "Roma - Clivo di Scauro")  
 più o meno [tra Laziali e Ostiense](/19wk37-papz-laziali-ostiense.md)  
   
 Celio. Da via San Paolo della Croce a Clivio di Scauro. Tratto poco trafficato, quasi senza macchine e abbastanza fuori dal mondo tipo angolo di Roma *che Pinelli immortalò*.  
@@ -15,4 +15,4 @@ Appresso passa un cagnone anche lui ghiotto di noci che rompe i gusci avanzati c
 Poi ci sarebbe da dire dei vigilantes davanti alla Mediaset (molto filosofici); di quelli dell'ambasciata Albanese che una volta l'anno vengono in pompa magna con delle Mercedes ancora più mega e mettono palate di fiori sulla statua di Madre Teresa (proprio sopra, tipo tumulo); delle due giornaliste che fanno footing e di quanto sparlano; del ragazzo anglosassone passo lungo sosia di Don Chisciotte che esce da villa Celimontana e va alla FAO; dei giovani preti sud americani, cicciottelli e un po' spauriti, che escono da un altro convento e che se mi vedono vestito di blu mi scambiano per un loro superiore e mi salutano rispettosi, e poi di altri ancora.  
 
 ---  
-[home](/papz.md)   
+[home](/papz.md) - [about me](/aboutme.md) 
