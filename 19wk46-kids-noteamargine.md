@@ -1,7 +1,7 @@
 # kids   
 
 #### della serie "note a margine" - wk46 2019  
-![](/pic/19wk46trenoteamargine.png "Frascati - agli alberi pizzuti")  
+![](/19wk46trenoteamargine.png "Frascati - agli alberi pizzuti")  
 
 **sciure**    
 A Milano centro, domenica mattina. Incrociamo una nonna (ben vestita, signorile, tipo moglie di avvocato) a passeggio con la nipotina (una bimbetta deliziosa. la nonna provava a convincerla di lasciare qualcosa (non so cosa) per prenderlo nuovo: "vorrà dire che lo regalerai ai bambini poveri."  

@@ -1,7 +1,7 @@
 # Calata   
 
 #### della serie "letti (o quasi)" - wk46 2019  
-![](/pic/19wk46calata.png?V=2 "Antigone - coro")  
+![](/19wk46calata.png?V=2 "Antigone - coro")  
 
 La [*Calata*](https://www.casadellospettatore.it/2019/09/20/la-calata-a-milano-2019/) milanese parte dinamica: io e mia moglie già nel primo pomeriggio ci vediamo con altri sette/otto *calati* al teatro San Lorenzo alle Colonne (zona Porta Ticinese) per una prova aperta di Antigone (debutterà di li a tre giorni), poi c'è giusto il tempo di una pizzetta e mentre io vado al Teatro Carcano per  "Lo zoo di vetro", mia moglie deve andare in un *teatrino off* dove di spettacoli ne fanno addirittura due. Anche gli altri *calati* all'Antigone si disperderanno in giro per Milano e dovremmo poi rincontrarci tutti a fine serata in zona Duomo (ma è da confermare, in caso ci sarebbe l'animatissimo gruppo WhatsApp per i dettagli, a trovarli).  
 Il teatro San Lorenzo alle Colonne è una sala parrocchiale sul lato destro dell'omonima chiesa. Si entra da una porticina dimessa, senza insegna o luci, che sembra più un ingresso degli artisti. Entrando su un corridoio, a sinistra c'è la platea che si sviluppata più in larghezza che in profondità, ne soffre il palcoscenico che così sembra ancora più piccolo di quello che in effetti è.  

@@ -1,7 +1,7 @@
 # Giolitti   
 
 #### della serie "note a margine" - wk45 2019  
-![](/pic/19wk45noteamargine.png?v=2 "Roma, Trastevere - estate")  
+![](/19wk45noteamargine.png "Roma, Trastevere - estate")  
 
 **novità**  
 Termini, uscita su via Giolitti. Una ragazza sui trenta (alta, magra, simpatica) ha un appuntamento con qualcuno  proprio in mezzo a quel via vai (lo fanno in molti). La vedo chiamare la persona attesa, si scopre che stava a pochi metri. Entusiasmo. Quando si presenta è un'altra ragazza (anche lei alta, magra, simpatica) ed è tutto un gran baci&abbracci e sorridersi e cercare subito un posto per andare a parlare "delle novità" e "dirsi tutto". Ma tutto che?!  

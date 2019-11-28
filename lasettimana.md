@@ -1,7 +1,7 @@
 # la settimana  
 ### consuntivo settimanale  
 
-![](/pic/ns-settimana-scavoarcheologico.png "Roma - Scavo Archeologico")  
+![](/ns-settimana-scavoarcheologico.png "Roma - Scavo Archeologico")  
 
 **italiano vero** - wk42 2019  
 Tarda notte, semaforo tra Torre Spaccata e Tuscolana, il lavavetri è quasi invisibile. Fermi al rosso, si avvicina direttamente al finestrino come per chiedere qualcosa e scambiamo due chiacchiere. E' un tipo abbastanza allucinato: sorride molto, mi stringe più volte la mano per presentarsi, con un italiano assurdo dice che sta qui da ventitré anni (me lo  ribadisce più volte, insieme al suo nome). Dice che lui è "diBagladesh" e che ha due nazionalità (italiana e diBagladesh) mentre noi una sola, ah ah ah. Continua a divertirsi molto e farebbe anche simpatia se non fosse per quel sorriso mezzo allucinato a quell'ora di notte in quell'incrocio da Suburra.  

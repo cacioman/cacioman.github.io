@@ -2,7 +2,7 @@
 
 ### mezze frasi, magiche apparizioni, foto mancate e intruppamenti vari  
 
-![](http://cacioman.updog.co/pic/ns-incrociati-romatrastevere.png "Roma Trastevere")  
+![](/ns-incrociati-romatrastevere.png "Roma Trastevere")  
 
 **succhi** - wk43 2019  
 Metro B. Ci sono due attrezzi, due tamarri, sulla trentina. Si scambiano ricette di cocktail usando un gergo fuori luogo da *Chef Channel*  ("mettici una goccia di", "un profumo di", "un sospetto di"). Quello che sembra più ottuso dei due invece si rileva quello più competente: dice di aver trovato un metodo infallibile per fare il succo di pomodoro trasparente. Trasparente?! Lo spiega nel dettaglio. E' complicato e non riesco a memorizzarlo al volo (e sospetto di essere io quello ottuso). L'altro non è per niente impressionato. Non reagisce neanche quando il drago del succo di pomodoro gli dice che poi facendo così il succo ti dura quasi tutto il giorno (e anche di più).  
@@ -191,4 +191,4 @@ Sul treno che arriva da Ponte Galeria c'è una coppia di cinquantenni. Sembrano 
 Gli androni e i portierati dei palazzi che si credono un po' *'sto cazzo* e che mi mettono sempre un po' di soggezione a passarci davanti.  
 
 ---  
-[home](/index.md) - [**about me**](/aboutme.md)   
+[home](/index.md) - [about me](/aboutme.md)   
