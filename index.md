@@ -15,7 +15,7 @@
 - [Tano](/19wk45-papz-garbatella.md): di incontri sistematicamente mancati con personaggi famosi #PAPZ 
 
 ---  
-[fblog](https://www.flickr.com/photos/cacioman/) - [p.a.p.z](/papz.md) - [ital exit](/italexit.md) - [note a margine](/incrociati.md) - [la settimana](/lasettimana.md) - [intera rete](/index.md) - [jogno](/jogno.md) - [video](https://www.youtube.com/channel/UCDoy-lXaaJVugJ9bLVSXGJw?view_as=subscriber) - [a.d.l.g.](https://www.youtube.com/channel/UC8B2bq3VdPtSeLzryWwNAlQ) - [album](https://www.instagram.com/cacioman63/) - [sp](https://t.me/cacioshared) - [about me](/aboutme.md)  
+[fblog](https://www.flickr.com/photos/cacioman/) - [p.a.p.z](/papz.md) - [ital exit](/italexit.md) - [note a margine](/incrociati.md) - [la settimana](/lasettimana.md) - [intera rete](/interarete.md) - [jogno](/jogno.md) - [video](https://www.youtube.com/channel/UCDoy-lXaaJVugJ9bLVSXGJw?view_as=subscriber) - [a.d.l.g.](https://www.youtube.com/channel/UC8B2bq3VdPtSeLzryWwNAlQ) - [album](https://www.instagram.com/cacioman63/) - [sp](https://t.me/cacioshared) - [about me](/aboutme.md)  
     
 
 
