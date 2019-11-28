@@ -2,7 +2,7 @@
 
 ### mezze frasi, magiche apparizioni, foto mancate e intruppamenti vari  
 
-![](/ns-incrociati-romatrastevere.png "Roma Trastevere")  
+![](https://live.staticflickr.com/65535/49136813722_f458638851_o.png "Roma-Fiumicino")  
 
 **succhi** - wk43 2019  
 Metro B. Ci sono due attrezzi, due tamarri, sulla trentina. Si scambiano ricette di cocktail usando un gergo fuori luogo da *Chef Channel*  ("mettici una goccia di", "un profumo di", "un sospetto di"). Quello che sembra più ottuso dei due invece si rileva quello più competente: dice di aver trovato un metodo infallibile per fare il succo di pomodoro trasparente. Trasparente?! Lo spiega nel dettaglio. E' complicato e non riesco a memorizzarlo al volo (e sospetto di essere io quello ottuso). L'altro non è per niente impressionato. Non reagisce neanche quando il drago del succo di pomodoro gli dice che poi facendo così il succo ti dura quasi tutto il giorno (e anche di più).  

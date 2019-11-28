@@ -1,7 +1,7 @@
 # jogno  
 ### ancora roba abbastanza undergroug  
 
-![](/ns-jogno-mammolo.png "Roma - MetroB, Ponte Mammolo")  
+![](https://live.staticflickr.com/65535/49136617456_8da27e3575_o.png "Roma - MetroB, Ponte Mammolo")  
 
 **sette sei sei, sette sei nove** - wk41 2019  
 San Paolo. Pensilina della fermata su via Giustiniano Imperatore, sotto il ponte della Metro B. Qui passano il 670 (un autobus, popolato di soggetti strani, che si aggroviglia in un giro demenziale tra Garbatella e Colombo), il 128 (che qui fa l'ultima fermata e se per sbaglio lo prendi, fa conversione ad U e ti porta verso la Magliana) e poi i due 766 e 769 (che per me sono equivalenti e me li confondo sempre tra loro).  

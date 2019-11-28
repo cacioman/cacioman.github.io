@@ -2,7 +2,7 @@
 
 ### intorno a noi, mano a mano che succede  
 
-![](/ns-italexit-primaivelitaerni.png "Velletri - Prima i  Veliterni")  
+![](https://live.staticflickr.com/65535/49136617491_13561a61a6_o.png "Velletri - Prima i  Veliterni")  
 
 **tutto italiano**  - nov 2019  
 Vado a comprare i sigari e il tabaccaio me suggerisce di acquistarne una nuova versione in cui anche la foglia esterna è italiana, tabacco Kentuky ma italiano, non tabacco Kentuky ma americano. Italiano? il tabacco? Tipo la patata di Avezzano? Naturalmente lo compro, io abbocco a tutto, italiano 100%.  
