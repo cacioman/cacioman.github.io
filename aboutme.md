@@ -1,6 +1,6 @@
 # about me  
 
-[![](/pic/ns-aboutme-selfie.png "MetroB")](http://cacioman.updog.co/index.md)  
+[![](/ns-aboutme-selfie.png "MetroB")](http://cacioman.updog.co/index.md)  
   
   
 Claudio Gatti: nato a Roma il 3/6/63, coniugato, due figli.  
