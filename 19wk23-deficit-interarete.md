@@ -2,7 +2,7 @@
 # deficit  
 
 #### della serie “note a margine” - wk19 2018  
-![](/interarete015.png "Ciampino - se ne discute")  
+![](https://live.staticflickr.com/65535/49138061528_f72129628e_z.jpg "Ciampino - se ne discute")  
 
 In treno c’è una che parla a raffica al telefono, non smette mai. Dall'altra parte del filo devono avere giusto il tempo per qualche monosillabo.  
 Dice di un colloquio che ha appena avuto col personale della sua ditta No, non è andata bene, non è andata bene per niente: la vogliono *riallocare*.  

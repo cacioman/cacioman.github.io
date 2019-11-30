@@ -1,6 +1,6 @@
 # beccato!  
 #### della serie "intera rete" - w42 2017  
-![](/interarete003.png "Trenino RomaFrascati - sempre vigili")    
+![](https://live.staticflickr.com/65535/49138557341_85d6229404_o.png "Trenino RomaFrascati - sempre vigili")    
 
 Poi una volta è successo. Di mattina sul marciapiede del binario 5 della stazione Tuscolana. Un ragazzo coi riccetti rasta, pelle scura, si è messo a minacciarmi perché lo avevo fotografato.  
 In realtà non stavo fotografando solo lui ma lui ed un altro ragazzo che come mi ha sgamato è subito sparito. E' rimasto il rasta che ha preso a ringhiare: "Cazzo fai?!, Non te devi avvicina , Te tengo docchio , Te ne devi danna Non e da vede , Nun te vojo vede ".  

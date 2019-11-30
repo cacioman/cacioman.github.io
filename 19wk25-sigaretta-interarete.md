@@ -1,7 +1,7 @@
 # ultima sigaretta  
 
 #### della serie “in giro” - wk22 2018  
-![](/interarete023.png "Roma Frascati - legs")
+![](https://live.staticflickr.com/65535/49138754212_c7d893cdb4_z.jpg "Roma Frascati - legs")
   
 Alla fermata del bus una signora sui settantacinque (ma che si tiene disperatamente su) mi chiede una sigaretta. Penso subito alle volte che ho usato questo approccio genere da militare in libera uscita. Non tantissime ma poi che c'entra? non è certo una situazione di quelle, credo. Non lo è.  
 "No, mi spiace" dico "non fumo".  

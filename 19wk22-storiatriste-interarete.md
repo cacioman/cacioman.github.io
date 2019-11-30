@@ -1,8 +1,8 @@
 # una storia triste  
 
 #### della serie "intera rete" - wk15 2018
-![](/interarete007.png "Ciampino - scale") 
-      
+![](https://live.staticflickr.com/65535/49138061688_12d6a06baa_o.png "Ciampino - scale") 
+     
 
 Da Muratella il treno parte quasi vuoto. A Villa Bonelli sale solo una signora sui trentacinque, si siede subito vicino ad un tizio già sul treno e che evidentemente conosce. 
 "Com'è che il treno è così vuoto?" gli chiede direttamente, il tizio allarga le braccia "Boh...".

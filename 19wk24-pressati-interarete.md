@@ -1,7 +1,7 @@
 # pressati  
 
 #### della serie “intera rete” - wk20 2018  
-![](/interarete012.png "Roma Ostiense - ritardo")  
+![](https://live.staticflickr.com/65535/49138754457_85de2c3dee_o.png "Roma Ostiense - ritardo")  
 
 Roma Termini, sera. Il treno per Cassino ha cinquanta minuti di ritardo in partenza. Tutta una estenuante serie di annunci “parte sì”, “parte no” poi scatta qualcosa (forse un semaforo che cambia colore o dei movimenti più decisi del capotreno) e tutti capiscono che è la volta buona. Quelli scesi a fumare buttano la sigaretta, quelli curvi sul telefono si risvegliano. Tutti insieme risalgono sul treno e sulle porte si forma un tappo umano, compattato e cattivo. 
 Da in fondo al binario arrivano di gran carriera due omaccioni panciuti ed espressione determinata. Con inattesa agilità, quella di chi sale e scende dalle impalcature edili, i due si aggrappano in qualche modo al tappo umano. Il tappo mugola, ondeggia ma fieramente resiste e li lascia per metà fuori.  
