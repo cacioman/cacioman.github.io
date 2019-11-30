@@ -1,7 +1,7 @@
 # eur fermi  
 
 #### della serie “in giro” - wk21 2018  
-![](/interarete021.png?v=2 "Roma Fiumicino - manone")
+![](https://live.staticflickr.com/65535/49138556891_3fff34d078_z.jpg "Roma Fiumicino - manone")
 
 Sopra la Metro Eur Fermi tira tutta un’altra atmosfera rispetto a quella di Eur Palasport, che pure sta solo a un chilometro dall'altra parte della Colombo. Di là professionisti e tipi azzimati dallo sguardo sicuro, se non losco. Di qua immigrati sgarupati e italiani spenti. Di là negozi ben tenuti, commesse carine. Di qua un mercatino di indiani che spolverano ossessivamente la loro merce (scarpe, occhiali, custodie del telefono) battendoci sopra dei piumini colorati (quelli che andavano ai tempi del *boom*) e poi capace che a una cert'ora passa anche un carretto col riso fumante, che c'ha quei loro odori speziatissimi, e il riso te lo vende a cartoccietti.  
 
