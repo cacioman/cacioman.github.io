@@ -1,6 +1,6 @@
 # intera rete  
 
-![](/coverpage.png  "Metro B - man at work")  
+![](https://live.staticflickr.com/65535/49138061873_cd5ecf5c30_o.png "Metro B - man at work")  
 
 ### sarebbe a dire: quello che mi succede quando vado al lavoro coi mezzi pubblici romani e che poi racconto come se fosse una cosa veramente interessante  
 
