@@ -3,6 +3,19 @@
 
 ![](https://live.staticflickr.com/65535/49136813537_488e1ecec6_o.png "Roma - Scavo Archeologico")  
 
+**tra donne**  - wk47 2019    
+Metro A. Mattina presto. Entra una badante, tipo indiana, con una signora anzianissima e va dritta a cercarle una sistemazione. Non ci sono però più posti liberi: sono stati quasi tutti occupati da uomini che trafficano col telefonino. A ben guardare ne è rimasto uno con una ragazza (ma che dorme profondamente). L'indiana la punta subito anche se per svegliarla deve quasi scuoterla. La ragazza apre gli occhi, capisce la situazione e cede il posto alla vecchia, poi si appoggia mezza impampanita ad una parete. Intanto il resto del vagone segue tutta la vicenda ma in tralice (e da un altro universo parallelo).  
+E' stata una settimana così: abbastanza sullo gnorri.   
+
+**raccontarsela** - wk46 2019   
+A Milano, in giro per la città ma anche in Metro nei bar o nei musei, ci è capitato di imbatterci in queste coppie sui trenta-quaranta, specie etero, che si fanno grandi effusioni, che si stringono in abbracci intensi e lunghissimi, che si lanciano in sguardi rapiti all'infinito (e oltre). Cose insomma sopra le righe che sembrano per lo più studiate e drammatizzate a beneficio dei passanti: vari *remake* di soldatini che partono per il fronte occidentale o di Lare e dottor Zivaghi (che però questa volta finalmente si ritrovano).    
+Deve essere un fenomeno in fase calante perché poi nessuno per strada se li fila più e anche io, che di solito fotografo qualsiasi cosa si muova all'orizzonte, mi guardo bene a dargli corda.  
+E' stata tutta una settimana così: di tanta fatica per nulla.    
+
+**spumeggiante**  - wk45 2019  
+Appena ripartiti, neanche due metri dopo la fermata, il 766 riapre la porta davanti per far salire al volo una ragazza che da dentro vedevamo accorrerci incontro trafelatissima. E' una ragazza molto carina, sorridente e piccolina, sui vent'anni. Una signora che sta seduta sul sedile davanti appena sale le dice con un sorriso ammiccante le dice che l'autista ha fatto bene a farla salire perché  "è veramente molto carina". La ragazza sorride imbarazzata (ma consapevole). In effetti è proprio così e subito mi domando se fossi stato io ad accorrere tutto ballonzolate e con l'occhio spento. Cosa avrebbe fatto l'*autista troll* ora alla guida, m'avrebbe asfalto o solo sfanculato?  
+E' stata tutta una settimana così: abbastanza da vittimista.    
+
 **italiano vero** - wk42 2019  
 Tarda notte, semaforo tra Torre Spaccata e Tuscolana, il lavavetri è quasi invisibile. Fermi al rosso, si avvicina direttamente al finestrino come per chiedere qualcosa e scambiamo due chiacchiere. E' un tipo abbastanza allucinato: sorride molto, mi stringe più volte la mano per presentarsi, con un italiano assurdo dice che sta qui da ventitré anni (me lo  ribadisce più volte, insieme al suo nome). Dice che lui è "diBagladesh" e che ha due nazionalità (italiana e diBagladesh) mentre noi una sola, ah ah ah. Continua a divertirsi molto e farebbe anche simpatia se non fosse per quel sorriso mezzo allucinato a quell'ora di notte in quell'incrocio da Suburra.  
 Molto soddisfatto dice che quest'anno ha anche votato. Vuole stupirci. Hai votato?! E per chi hai votato? "Il voto è segreto!" replica lui. Un perfetto italiano! dico e quello mi fa una risata di gran soddisfazione, poi scatta il verde.   

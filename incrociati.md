@@ -4,6 +4,26 @@
 
 ![](https://live.staticflickr.com/65535/49136813722_f458638851_o.png "Roma-Fiumicino")  
 
+
+**sciure** - wk46 2019     
+A Milano centro, domenica mattina. Incrociamo una nonna (ben vestita, signorile, tipo moglie di avvocato) a passeggio con la nipotina (una bimbetta deliziosa. la nonna provava a convincerla di lasciare qualcosa (non so cosa) per prenderlo nuovo: "vorrà dire che lo regalerai ai bambini poveri."  
+
+**pari pari** - wk46 2019   
+Anagnina. Scendiamo dalla scala buia e sporca del parcheggio multipiano. Intanto una famigliola di ciccioni (lui e lei sui quaranta ciccioni, due figli preadolescenti ciccioni anche loro) che chiacchierano risalendo lentamente le scale. Il padre dice che ha conosciuto quello che è *uguale uguale* a non so che personaggio di Checco Zalone. Anzi è proprio la persona da cui Checco Zalone ha copiato tutto (accento, mosse,intonazioni) del suo personaggio, pari pari. Tutti lo ascoltano ammirati (un po' anche io).  
+
+**armonia** - wk46 2019    
+Via della villa di Lucina, direzione asilo. Una mamma trascina in salita una bambina recalcitrante tirandola per la mano mentre quella punta i piedi. La mamma, una signora alta con lo sguardo stanco, canta con voce dolce ma un po' meccanica una canzoncina (tipo "la la la la") ma funziona poco.  
+
+**novità** - wk45 2019   
+Termini, uscita su via Giolitti. Una ragazza sui trenta (alta, magra, simpatica) ha un appuntamento con qualcuno  proprio in mezzo a quel via vai (lo fanno in molti). La vedo chiamare la persona attesa, si scopre che stava a pochi metri. Entusiasmo. Quando si presenta è un'altra ragazza (anche lei alta, magra, simpatica) ed è tutto un gran baci&abbracci e sorridersi e cercare subito un posto per andare a parlare "delle novità" e "dirsi tutto". Ma tutto che?!  
+
+**sigaretta**  - wk45 2019   
+Termini, uscita su via Giolitti. Dal flusso informe esce una famigliola tipo Europa dell'est (biondini, vestiti scialbi, padre segaligno, madre piccoletta, figlio eguale a tutti e due). I tre si guardano intorno attoniti, forse anche un po' schifati. Dalle labbra di tutti e tre pende una sigaretta spenta, da poco infilata in bocca per essere accesa ed ondeggiante in verticale sul mento. La tengono tutti allo stesso modo. E io, come uno scemo, mi manca il tempo per fotografarli.  
+
+**business man** - wk45 2019  
+Termini, uscita su via Giolitti. In mezzo al solito via-vai, due neri sulla trentina se stanno seduti da un quarto d'ora sui cilindri anti-intrusione dell'ingresso. Ogni tanto la guardia giurata passa per dire di alzarsi, che quelli non reggono, lo fa con tutti con scarso effetto e alla fine rinuncia.  i due neri manco se ne accorgono, parlano interrottamente. Dopo un altro bel po' arriva un amico loro, forse è quello con cui hanno appuntamento. Lunghi saluti, poi ancora chiacchiere, poi finalmente il nuovo arrivato da una bustaccia bianca tira fuori tre-quattro paia di Converse bianche. Sono scarpe nuove, immacolate e gigantesche (forse numero 48). I  due se le rigirano in tutti i modi, le soppesano, fanno le espressioni poco convinte infine le rimettono dentro.  
+E così è passato un altro quarto d'ora.  
+
 **succhi** - wk43 2019  
 Metro B. Ci sono due attrezzi, due tamarri, sulla trentina. Si scambiano ricette di cocktail usando un gergo fuori luogo da *Chef Channel*  ("mettici una goccia di", "un profumo di", "un sospetto di"). Quello che sembra più ottuso dei due invece si rileva quello più competente: dice di aver trovato un metodo infallibile per fare il succo di pomodoro trasparente. Trasparente?! Lo spiega nel dettaglio. E' complicato e non riesco a memorizzarlo al volo (e sospetto di essere io quello ottuso). L'altro non è per niente impressionato. Non reagisce neanche quando il drago del succo di pomodoro gli dice che poi facendo così il succo ti dura quasi tutto il giorno (e anche di più).  
 
