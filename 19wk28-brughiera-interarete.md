@@ -1,7 +1,7 @@
 # brughiera 
 
 #### della serie “intera rete” - wk25 2018  
-![](/interarete037.png "Roma Termini - la nuova terrazza")    
+![](https://live.staticflickr.com/65535/49138753897_e90cdc4b9c_z.jpg "Roma Termini - la nuova terrazza")    
   
 Treno per Fiumicino, se lo prendo più tardi incontro uno che fa le voci. Questo non è come gli altri che fanno le  voci: questo quasi non si sente, lui sibila le frasi come se arrivassero da lontanissimo, da in fondo la brughiera, da dentro la nebbia del porto delle nebbie, dall'ala remota del remotissimo castellooo.  
 I dialoghi sono di genere casalingo ma molto accorati: "T'ho detto di noooooooo!.."; "E’ quellaaaaa che ha stirato mammmmmaaaaaa…"; "Non quellllaaaaa, è l'altraaaaa!.."  
