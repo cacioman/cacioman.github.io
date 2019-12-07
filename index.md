@@ -2,7 +2,7 @@
 
 
 [**week #49**](/19wk49newsletter.md)  
-di trafelatissimi arrivi, di manine, di ombre nella penombra, di accoppiati secondo natura, di bagagli e di altre accolli così in giro per la metropoli tentacolare. 
+di trafelatissimi arrivi, di manine, di ombre nella penombra, di accoppiati secondo natura, di bagagli e di altri accolli così in giro per la metropoli tentacolare. 
 
 **week #46**  
 di lettori accaniti, di pose plastiche, di kabale, di alta formazione, di performance atletiche, di altre artistiche e di altre cose così su cui sono inciampato questa settimana   
