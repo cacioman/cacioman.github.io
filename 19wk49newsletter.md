@@ -14,8 +14,7 @@ Nel dettaglio:
 - [appesi](https://1drv.ms/u/s!AmY1zFNVyggFvBsKBp2Z3FIxYemV?e=PolyiP): foto di quando si sta appesi come sugli alberi le foglie    
 - [via vai](https://youtu.be/Pu4mT19fQVY): gente che va e gente che viene nella penombra della stazione Termini della Metro B. Spoiler: nel video non succede veramente niente di speciale (46 sec.) #VideoInsulso
 - [lui/lei](https://1drv.ms/u/s!AmY1zFNVyggFu3hJK_7jtyC1RwWS?e=RavxfO):  di quando ci si accoppia secondo natura (diciamo così) #FotoALbum     
-- [fotoblog](https://www.flickr.com/photos/cacioman/): la solita strisciata di foto atroci   
-- [manine](https://www.instagram.com/cacioman63): foto di manine (e manone) in giro per strada     
+- [fotoblog](https://photos.app.goo.gl/ys8AAiCGfMq13ojq5): la solita strisciata di foto atroci       
 - [shared post](https://t.me/cacioshared): post meticolosamente selezionati dal sottoscritto e buttati in broadcast su Telegram  
 
 
