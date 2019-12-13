@@ -11,11 +11,10 @@ Nel dettaglio:
 
 - [bagaglio](/19wk36-bagaglio-interarete.html): di quando ti lanci in un'impresa dall'esito incerto  
 - [last minute](https://youtu.be/Gd9Uqjbtc94): l'ultimo emozionante minuto e mezzo prima della partenza del Roma/Civitavecchia. Attenzione: il video è veramente insulso e non succede veramente nulla (durata 1m33sec)      
-- [appesi](https://1drv.ms/u/s!AmY1zFNVyggFvBsKBp2Z3FIxYemV?e=PolyiP): foto di quando si sta appesi come sugli alberi le foglie    
+- [appesi](https://photos.app.goo.gl/ckHYESejN2H6qt3S6): foto di quando si sta appesi come sugli alberi le foglie    
 - [via vai](https://youtu.be/Pu4mT19fQVY): gente che va e gente che viene nella penombra della stazione Termini della Metro B. Spoiler: nel video non succede veramente niente di speciale (46 sec.) #VideoInsulso
-- [lui/lei](https://1drv.ms/u/s!AmY1zFNVyggFu3hJK_7jtyC1RwWS?e=RavxfO):  di quando ci si accoppia secondo natura (diciamo così) #FotoALbum     
-- [fotoblog](https://photos.app.goo.gl/ys8AAiCGfMq13ojq5): la solita strisciata di foto atroci       
-- [shared post](https://t.me/cacioshared): post meticolosamente selezionati dal sottoscritto e buttati in broadcast su Telegram  
+- [lui/lei](https://photos.app.goo.gl/auwH1qsLiHtnewvEA):  di quando ci si accoppia secondo natura (diciamo così) #FotoALbum     
+- [fotoblog](https://photos.app.goo.gl/ys8AAiCGfMq13ojq5): una strisciata di foto         
 
 
 ---  
