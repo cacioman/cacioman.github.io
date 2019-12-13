@@ -1,4 +1,4 @@
-[![](https://live.staticflickr.com/65535/49136129128_4e264254f1_o.png "fotoblog on flickr")](https://photos.app.goo.gl/ys8AAiCGfMq13ojq5)  
+[![](https://live.staticflickr.com/65535/49136129128_4e264254f1_o.png "fotoblog")](https://photos.app.goo.gl/ys8AAiCGfMq13ojq5)  
 
 
 [**week #49**](/19wk49newsletter.md)  
