@@ -1,5 +1,8 @@
 [![](https://live.staticflickr.com/65535/49136129128_4e264254f1_o.png "fotoblog")](https://photos.app.goo.gl/ys8AAiCGfMq13ojq5)  
 
+[**week #50**](/19wk50newsletter.md)  
+di quadrati, di abissi di umidità, di sardine, di salami tagliati a metà, di ciabatte cinesi e di altre cose così che al mercato mio padre comprò.  
+
 [**week #49**](/19wk49newsletter.md)  
 di trafelatissimi arrivi, di manine, di ombre nella penombra, di accoppiati secondo natura, di bagagli e di altri accolli così in giro per la metropoli tentacolare. 
 
