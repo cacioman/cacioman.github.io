@@ -2,7 +2,7 @@
 
 #### della serie “in giro”  - wk#02 2018  
 
-![](/interarete115.png "Palermo - 619")  
+![](https://live.staticflickr.com/65535/49138751107_40727eb544_z.jpg "Palermo - 619")  
 
 Al ritorno, sul treno per Cassino, trovo una sessantenne sullo smandrappato (tipo ex ex bellezza del paese) che parla al telefonino a tutto volume.  
 "Il maresciallo ha detto che se te voi para' er culo devi fa la denuncia pe’ stocching. Ma che non l'hai visto Quarto grado?!  
