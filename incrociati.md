@@ -2,8 +2,7 @@
 
 ### mezze frasi, magiche apparizioni, foto mancate e intruppamenti vari  
 
-![](https://live.staticflickr.com/65535/49136813722_f458638851_o.png "Roma-Fiumicino")  
-
+![](https://drive.google.com/uc?id=1Vr_e_Evx0e299n4oiWHW049_otOAcBkO "Roma-Fiumicino")  
 
 **sciure** - wk46 2019     
 A Milano centro, domenica mattina. Incrociamo una nonna (ben vestita, signorile, tipo moglie di avvocato) a passeggio con la nipotina (una bimbetta deliziosa. la nonna provava a convincerla di lasciare qualcosa (non so cosa) per prenderlo nuovo: "vorrà dire che lo regalerai ai bambini poveri."  

@@ -1,6 +1,6 @@
 # about me  
 
-[![](https://live.staticflickr.com/65535/49136813752_344a9c5d05_o.png "MetroB")](/index.md)  
+[![](https://drive.google.com/uc?id=1VekJ5JJnSFQMeIHPGnMwSwZpmuSSB6Zu "MetroB")](/index.md)  
   
   
 Claudio Gatti: nato a Roma il 3/6/63, coniugato, due figli.  
@@ -8,7 +8,7 @@ Vivo a Frascati, lavoro a Roma, milite esente, patente munito (ma preferisco i m
 
 Il mio blog è [**cacioman**](/index.md)  dove pubblico microstorie inconcludenti, foto fatte male, video insulsi e altre cose così capitate andando in giro.  
   
-Puoi rimanere aggiornato seguimi su [twitter](https://twitter.com/cacioman) o iscriviti alla mia [newsletter](https://tinyletter.com/cacioman) settimanale (se va bene settimanale se no anche molto meno frequente).  
+Seguimi con [twitter](https://twitter.com/cacioman), [tumblr](https://cacioman.tumblr.com), [bloger](https://cacioman.blogspot.com) o [newsletter](https://tinyletter.com/cacioman).  
 
 >      
 
