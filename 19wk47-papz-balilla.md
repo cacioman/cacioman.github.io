@@ -2,7 +2,7 @@
 
 #### della serie "percorsi alternativi pendolari zen" - wk#47 2019     
   
-![](https://live.staticflickr.com/65535/49138247088_f623df4a75_c.jpg "Roma - via Balilla")  
+![](https://drive.google.com/uc?id=1RvwXPUz1hr-JAVayR70nlmfthh4L_568 "Roma - via Balilla")  
 più o meno [tra Ferrovie Laziali e Roma Tuscolana](/19wk37-papz-laziali-tuscolana.md) - più precisamente [qui](https://goo.gl/maps/earEFep2mgrBiUfm8)   
 
 Via Giolitti è una strada stretta e lunga che per un paio di chilometri costeggia la ferrovia della Stazione Termini. Da una parte la muraglia della ferrovia (a tratti metafisica, in altri più sgarupata) e di fronte l'Equilino, un quartiere di vecchi fasti umbertini (ora stemperati dal multietnico *doc*). A metà di via Giolitti, dopo il tempio della Minerva Medica (sempre chiuso e cadente) c'è una breve strada a forma di chiave a brugola. E' via Balilla.  

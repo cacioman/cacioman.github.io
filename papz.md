@@ -1,7 +1,7 @@
 # P. A. P. Z.  
 #### Percorsi Alternativi Pendolari Zen   
 
-![](https://live.staticflickr.com/65535/49138246703_6ddb6b5a57_c.jpg "S.P.Q.R.")  
+![](https://drive.google.com/uc?id=1Y9A4QdbH6Vwu0KTRTvvB9k9hjgFURsdD "S.P.Q.R.")  
 
 A un certo punto in Metro m'è presa a farmela a piedi scendendo qualche fermata prima, diciamo per salutismo. Poi dato lo smandrappamento generale della Metro (stazioni interdette e calca nei vagoni) mi sono trovato a scorciarne tratti sempre più lunghi fino a saltarla del tutto. Adesso quella mezz'oretta da perdigiorno, all'aria aperta, senza attese e fastidi, quasi mi piace. Quasi.  
 Non è che passo per zone di particolare interesse storico-culturale: sono posti qualsiasi, palazzi anonimi (al massimo un po' stinti), qualche rudere romano (ma di quelli poco gettonati, usati più che altro da spartitraffico) e l'afrore cittadino (quel misto gas di scarico e ortofrutta che però sa di familiare).    

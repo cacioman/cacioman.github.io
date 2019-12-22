@@ -2,7 +2,7 @@
 
 #### della serie "percorsi alternativi pendolari zen" - wk#40 2019   
   
-![](https://live.staticflickr.com/65535/49138741591_4146eb63b7_c.jpg "Roma - Clivo di Scauro")  
+![](https://drive.google.com/uc?id=1qVmfezm4TVx50vNHHndCyYl711DoWrV1 "Roma - Clivo di Scauro")  
 più o meno [tra Laziali e Ostiense](/19wk37-papz-laziali-ostiense.md)  
   
 Celio. Da via San Paolo della Croce a Clivio di Scauro. Tratto poco trafficato, quasi senza macchine e abbastanza fuori dal mondo tipo angolo di Roma *che Pinelli immortalò*.  
