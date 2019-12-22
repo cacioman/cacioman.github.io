@@ -2,8 +2,9 @@
 
 #### della serie "percorsi alternativi pendolari zen"  
 
-![](https://live.staticflickr.com/65535/49138740906_b0256e54cb_c.jpg "Stazione Tuscolana")   
-![](https://live.staticflickr.com/65535/49138741166_3970f7f36b_c.jpg "Stazione Ostiense")  
+![](https://drive.google.com/uc?id=1CIlzMdxB2fkxfixM3IVo7GWDg54vpOZm "Stazione Tuscolana")   
+
+![](https://drive.google.com/uc?id=1rxSe0K9v_87Tw5i61DY1oJfB0Q87ImtR "Stazione Ostiense")  
 
 durata: 60 minuti  
 dettaglio: [google maps](https://drive.google.com/open?id=1tHsr96r3YwLttKxbOrmrzo6QjELGWhCw&usp=sharing)    

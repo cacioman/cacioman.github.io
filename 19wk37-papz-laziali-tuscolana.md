@@ -3,8 +3,9 @@
 #### della serie "percorsi alternativi pendolari zen"  
 
 
-![](https://live.staticflickr.com/65535/49138246843_0d0cd092c3_c.jpg "Stazione delle ferrovie laziali")  
-![](https://live.staticflickr.com/65535/49138740906_b0256e54cb_c.jpg "Stazione Tuscolana")  
+![](https://drive.google.com/uc?id=1eDbG6_WuVMXeX0GKZn8m8tlCUYpKuJuN "Stazione delle ferrovie laziali")  
+
+![](https://drive.google.com/uc?id=1CIlzMdxB2fkxfixM3IVo7GWDg54vpOZm "Stazione Tuscolana")  
 
 durata 35 minuti - [vedi tracciato](https://drive.google.com/open?id=1WbuM3AHBEumcpaFK8_ng-Ph12r-Jl3hR&usp=sharing)   
 

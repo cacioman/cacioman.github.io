@@ -2,8 +2,9 @@
 
 #### della serie "percorsi alternativi pendolari zen"  
 
-![](https://live.staticflickr.com/65535/49138246843_0d0cd092c3_c.jpg "Stazione delle ferrovie laziali")  
-![](https://live.staticflickr.com/65535/49138741166_3970f7f36b_c.jpg "Stazione Ostiense")  
+![](https://drive.google.com/uc?id=1eDbG6_WuVMXeX0GKZn8m8tlCUYpKuJuN "Stazione delle ferrovie laziali")   
+
+![](https://drive.google.com/uc?id=1rxSe0K9v_87Tw5i61DY1oJfB0Q87ImtR "Stazione Ostiense")  
 
 durata 55 minuti - [vedi tracciato](https://drive.google.com/open?id=1lfLupIxBQTBgf8WX89Onet80jUItx0XT&usp=sharing)    
 
@@ -12,9 +13,9 @@ di suore indi, di mezze star e di cani ghiottoni
 
 **pazzie** - wk#21 2019  
 Mattina, sul vialone mi affianco a due ragazzini delle elementari diretti a scuola. Parlano fitti, camminando a scatti e gesticolando agitati. Uno trattiene a stento la rabbia: "Adesso come entro in classe butto l'astuccio dalla finestra, con tutte le penne!". L'altro, molto colpito, replica accorato: "No, France'!.. non fa' pazzie però!"
-E' stata tutta una settimana così: un po' sul retorico.
+E' stata tutta una settimana così: un po' sul retorico.  
 
-**Celio**  - w04 2019     
+**Celio** - w#04 2019     
 Verso le 8:20, in attesa che apra la farmacia del Celio, due signori sulla settantina armeggiano davanti al distributore automatico di preservativi, un po' ridacchiano, un po' si imbarazzano e un po' si prendono per il culo. Poi arriva la ragazza della farmacia e si ricompongono subito.  
 
 **pupi**  - w03 2019  
@@ -95,9 +96,10 @@ Intanto che ragiono così il marciapinetto cinese fa un salto e guizza vai. E io
 Celio, settantenne nell'orto delle suore di Madre Teresa di Calcutta che zappetta fuori dal tempo ascoltando una radiolina (di quelle domenicali, gracchianti, usate per sentire "Tutto il calcio minuto per minuto"). Lo fa come se fosse ancora al paese suo in Abruzzo e poco sotto non scorresse il fiume di macchine dello stradone tra Palatino e Colosseo.  
 
 **antico rumeno**  - wk34 2017  
-Ragazzo piccoletto seduto su un gradino zona Ludus Magnus. Porta uno strano pantaloncino rosso dal quale spuntano due coscette bianche da monaca. Con lui c'è una ragazza smandrappata e parlano in rumeno. Il gonnellino, capisco poi, é un costume da gladiatore, corazza ed elmo stanno in una busta del supermercato che porta lei. Lui è esausto. Sembra Renato Rascel quando fa il corazziere ma questo non fa ridere. 
-
+Ragazzo piccoletto seduto su un gradino zona Ludus Magnus. Porta uno strano pantaloncino rosso dal quale spuntano due coscette bianche da monaca. Con lui c'è una ragazza smandrappata e parlano in rumeno. Il gonnellino, capisco poi, é un costume da gladiatore, corazza ed elmo stanno in una busta del supermercato che porta lei. Lui è esausto. Sembra Renato Rascel quando fa il corazziere ma questo non fa ridere.   
+  
 **Celio**  - 2017  
 Padre con figlio piccolo aggrappato al manubrio di una vespa (molto vintage) che la mattina vedo spesso uscire insieme da via Capo d'Africa e dall'altra parte della strada proprio davanti a me due operai (tipo due *parquettisi* o due di una ditta di pulizie) appoggiati al cofano del furgoncino che stanno concentratissimi a guardare le foto dei sedili di un'auto da una brochure pubblicitaria .   
+
 ---  
 [home](/papz.md) - [about me](/aboutme.md)

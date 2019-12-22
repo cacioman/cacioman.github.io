@@ -2,8 +2,9 @@
 
 #### della serie "percorsi alternativi pendolari zen"  
 
-![](https://live.staticflickr.com/65535/49138741311_6291d1e7a8_c.jpg "zona Colombo")  
-![](https://live.staticflickr.com/65535/49138740991_d02286d225_c.jpg "Piramide")  
+![](https://drive.google.com/uc?id=1CsjZYegSj_94boxpN25n-yHkLibBJI4o "zona Colombo")  
+
+![](https://drive.google.com/uc?id=1LDrbBTuSaZR-320EaJdZ9ZiG9qIMmnUw "Piramide")  
 
 [**cercasi Tano disperatamente**](/19wk45-papz-garbatella.md) - wk45 2019  
 di incontri sistematicamente mancati con personaggi famosi  

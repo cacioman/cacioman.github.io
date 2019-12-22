@@ -2,8 +2,9 @@
 
 #### della serie "percorsi alternativi pendolari zen"  
 
-![](https://live.staticflickr.com/65535/49138939462_faf1eafed0_c.jpg "Roma Termini")  
-![](https://live.staticflickr.com/65535/49138939832_8eed04d664_c.jpg "Circo Massimo")  
+![](https://drive.google.com/uc?id=1bjUIKWN_rkALJuo2Y_Gf8Qn3_yIzyYdi "Roma Termini")  
+
+![](https://drive.google.com/uc?id=1uQqFiJyhe9wQQtfyZWRtKNvaywTEKMme "Circo Massimo")  
 
 durata 30 minuti - [vedi tracciato](https://drive.google.com/open?id=17AkcZ-kSqDk33pwxQ-r3hHxlNlBtMcNg&usp=sharing)   
 
