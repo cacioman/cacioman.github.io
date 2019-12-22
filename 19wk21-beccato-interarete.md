@@ -1,9 +1,10 @@
 # beccato!  
 #### della serie "intera rete" - w42 2017  
-![](https://live.staticflickr.com/65535/49138557341_85d6229404_o.png "Trenino RomaFrascati - sempre vigili")    
+![](https://drive.google.com/uc?id=1PoiHspKibR6Od1-vPhZRAAvJ_kkkpZHo "Trenino RomaFrascati - sempre vigili")  
+<!--- interarete003.png --->      
 
 Poi una volta è successo. Di mattina sul marciapiede del binario 5 della stazione Tuscolana. Un ragazzo coi riccetti rasta, pelle scura, si è messo a minacciarmi perché lo avevo fotografato.  
-In realtà non stavo fotografando solo lui ma lui ed un altro ragazzo che come mi ha sgamato è subito sparito. E' rimasto il rasta che ha preso a ringhiare: "Cazzo fai?!, Non te devi avvicina , Te tengo docchio , Te ne devi danna Non e da vede , Nun te vojo vede ".  
+In realtà non stavo fotografando solo lui ma lui ed un altro ragazzo che come mi ha sgamato è subito sparito. E' rimasto il rasta che ha preso a ringhiare: "Cazzo fai?!, Non te devi avvicina , Te tengo d'occhio , Te ne devi danna Non e da vede , Nun te vojo vede ".  
 Io mi giustifico, balbetto qualcosa, dico che insomma non è mica di proibito (ma non è vero), che era tutto alla luce del sole. Insomma improvviso. Possibile che in tutti questi anni non ho preparato uno straccio di strategia per questi casi? (e ancora non ce l’ho)  
 Il ragazzo però è sveglio e mi impallina ogni giustificazione: "E allora me lo dovevi di prima Capito?! " (il che non fa una piega).  
 Io ostento calma olimpica, faccio il disinvolto (ma devo essere una macchietta), dico che fotografo chiunque come dire “non è che fotografo te perché colleziono foto di ragazzini Non attacca. Dico allora che se vuole cancello tutto e subito. Questo  funziona. Mi avvicino per dare evidenza della cosa. Mentre lo faccio penso a tutti gli amici che mi sfottono chiedendo “ma non t’hanno ancora menato? Spero che questa non sia la volta buona.

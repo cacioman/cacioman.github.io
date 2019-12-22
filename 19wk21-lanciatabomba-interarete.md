@@ -1,7 +1,8 @@
 # lanciata bomba  
 
 #### della serie "Intera Rete" - w42 2017  
-![](https://live.staticflickr.com/65535/49138061848_c231f95434_o.png "Metro B, Piramide - corsetta")  
+![](https://drive.google.com/uc?id=1JoCYtdgS_xu0B6NLsE0d5XQcp0sDgtTk "Metro B, Piramide - corsetta")  
+<!--- interarete001.png --->  
 
 E' qualche tempo che intorno le 8:15 alla stazione Tiburtina, nella moderna galleria commerciale sopra i binari, c'è un omone sui 50-60, genere sovrappeso,  che corre molto compunto ciabattando a tutta birra tra gli accessi dei binari 24 e 5.  
 Probabilmente sarà costretto da una coincidenza risicata tra due treni. Ogni volta non è chiaro se ce la fa. Lui, l'omone, è però molto convinto del suo gesto atletico e deve sentirsi come il re del vento.   
