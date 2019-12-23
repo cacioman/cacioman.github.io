@@ -1,7 +1,8 @@
 # risucchio    
 
 #### della serie “note a margine” - wk25 2018  
-![](/interarete041.png "Metro A - ciavattoni")
+![](https://drive.google.com/uc?id=1ogmZ3YuhFKx-5tIFhbldmmXALROkuT3A "Metro A - ciavattoni")
+<!--- /interarete041.png --->  
 
 Metro B, San Paolo. Per il tizio della sicurezza che ci guarda dalle telecamere di controllo, siamo troppo vicini alla linea gialla. Ce lo dice dagli altoparlanti con tono indispettito. Forse è proprio per questo nessuno se lo fila, fatto sta che lui sbrocca.  
 "I signori utenti sarebbero pregati di camminare lontano dalla linea gialla.  

@@ -1,7 +1,8 @@
 # passo falso  
 
 #### della serie “intera rete” - wk23 2018  
-![](https://live.staticflickr.com/65535/49138061098_3c78ed3d03_z.jpg "Metro B, Piramide - exit Ostiense")  
+![](https://drive.google.com/uc?id=1rC82ewa23vFZzddKjNOiP1UnO4SYKDjA "Metro B, Piramide - exit Ostiense")  
+<!--- interarete031.png --->  
 
 Ostiense, binario 11. Le scale verso il sottopasso sono strette specie quando le imbocchiamo in massa. E' tutto uno spintonarsi ed incastrasi: c'è gente che caracolla in giù e gente che arranca in su per prendere il treno da cui siamo appena scesi. Vince sempre chi scende.
 Poi però se davanti trovi l'anziano, o la signora coi tacchi che scende passetto passetto, allora scatta l'ansia di gruppo: uno scalpita, uno sibila a denti stretti, uno fa un respirone per controllarsi. C'è anche quello indeciso che accenna a superare non appena non vede nessuno ma come lo fa spunta uno che vuole salire e lui deve fare una goffa marcia indietro. Io sono un po' di quel genere.  

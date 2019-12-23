@@ -1,7 +1,8 @@
 # mischine  
 
 #### della serie "settimanale" - 2018 wk#19 
-![](https://live.staticflickr.com/65535/49138556996_653ef08fff_z.jpg "Roma Palermo - rullaggio")  
+![](https://drive.google.com/uc?id=1IFpGz_uwuor74tkg0G_k9L-VE8EhynFD "Roma Palermo - rullaggio")  
+<!--- interarete017.png --->  
 
 L'ultima volta in partenza da Punta Raisi, già tutti imbarcati, siamo rimasti fermi un'eternità. Dice che era per via di due ritardatari.  
 Aspetta, aspetta, aspetta e intanto ci saliva solo il nervoso. Quando però i due ritardatari sono arrivati ci siamo smontati:  erano due vecchine, mortificatissime, che hanno preso a scusarsi con tutti quelli che incontravano per andare a sedersi: "c'eravamo perse in aeroporto, scusateci tanto...".  

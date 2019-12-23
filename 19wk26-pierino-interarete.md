@@ -1,7 +1,8 @@
 # pierino  
 
 #### della serie “intera rete” - wk24 2018  
-![](https://live.staticflickr.com/65535/49138061038_ab9f5a5711_z.jpg "Muratella - posa plastica")  
+![](https://drive.google.com/uc?id=1WwrXeCk90lGtbyGfJWRrQCAFdWrlNea5 "Muratella - posa plastica")  
+<!--- interarete034.png --->  
 
 Treno stracolmo. Caldo umido. Da in mezzo alla calca intorno alla porta, si sente una vocina sottile sottile che pigola una domanda. E' più un appello: vuole sapere quante stazioni mancano a Fiumicino. Lì per lì non risponde nessuno, poi una ragazza dell'est la rassicura: "Signora, manca poco, solo qualche fermata".  
 Intanto io mi sono già ripassato tutta la lista: Villa Bonelli, Magliana, Muratella, Ponte Galeria, Fiera di Roma, Parco Leonardo e Fiumicino Aereoporto. Sono sette e sarei anche pronto a snocciolarle in pubblico. Mi fermo appena in tempo: la signora della vocina ora si è come sgonfiata, tiene la fronte appoggiata alla parete e lo sguardo fisso a terra. Respira anche a fatica, con la bocca aperta, tipo pesce rosso.  

@@ -1,7 +1,8 @@
 # mestizia del mattino    
 
 #### della serie “note a margine” - wk25 2018  
-![](https://live.staticflickr.com/65535/49138060893_d444ceacc7_z.jpg "Metro B - strisce")    
+![](https://drive.google.com/uc?id=1tDtyc3ilkaG4N-lbEvRWnJu0kmIw0826 "Metro B - strisce")    
+<!--- interarete039.png --->  
 
 Termini, mattina presto, ci scendono in fondo al binario quindici.  
 Siamo una piccola folla che avanza introversa, calpestio di piedi e malinconico solicello.  

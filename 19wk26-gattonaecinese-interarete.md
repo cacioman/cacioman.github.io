@@ -1,7 +1,8 @@
 # gattona e cinese  
 
 #### della serie “intera rete” - wk25 2018
-![](https://live.staticflickr.com/65535/49138058863_04a9290e4e_z.jpg "Roma Termini - via Giolitti") 
+![](https://drive.google.com/uc?id=1eFDxJWUFa_tRYViOW66ot6pef_A8L1Yl "Roma Termini - via Giolitti") 
+<!--- interarete104.png --->   
 
 Al bancone di un bar dietro la stazione Tuscolana, un bar poco bazzicato che sembra un bar qualsiasi, trovo un cinese semplicemente perfetto: tirato a lucido, gentilissimo, ottimo italiano, molto veloce, nessuna propensione all'ammiccamento. La padrona sta alla cassa. E' la classica gattona romana, curatissima e indolente. Anche lei perfetta, nel suo genere.  
 Entra un tipo sui quarantacinque-cinquanta, un ex giovane scapestrato parecchio imbolsito, tutto ciancicato, giacca a vento fuori moda e molto sporca, capelli anche. Si direbbe uno con qualche trascorso di alcolismo. Forse neanche troppo trascorso. Il cinese ha come un impercettibile sussulto, ma lo noto solo io.  

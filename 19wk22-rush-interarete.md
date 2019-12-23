@@ -1,7 +1,8 @@
 # rush finale  
 
 #### della serie “intera rete” - wk16 2018  
-![](https://live.staticflickr.com/65535/49138754572_cabaf0c5e1_o.png "Roma Fiumicino - cecagna")  
+![](https://drive.google.com/uc?id=1YhRSgrhf7D5Ntm_uenCH0ynUQ_rzASqP "Roma Fiumicino - cecagna")  
+<!--- interarete0008.png --->   
 
 Stazione Roma Termini, ai binari dei treni regionali (ad esempio con destinazione Nettuno o meglio Minturno-Scauri), zona *testa binario* ad altezza motrice, orario serale intorno ai cinque minuti prima della prevista partenza. Ci si mette col treno alle spalle e lo sguardo rivolto alla stazione.    
 Il treno all'apparenza sembra spiaggiato. La motrice fa un fischio sordo e il capotreno gli ciondola intorno un po' guardando l'ora, un po' traguardando il semaforo in fondo al lungo linea del binario.   
