@@ -1,7 +1,8 @@
 # peccato  
 
 #### della serie “in giro” - wk45 2018 
-![](/interarete075.png "Metro - Termini") 
+![](https://drive.google.com/uc?id=1BZd2H3qBElXIL7h4g6lwSZnRAKlpPl_3 "Metro - Termini") 
+<!--- /interarete075.png  --->  
 
 Oggi in metropolitana c’era un ragazzo nero con il figlio, nero pure lui. Il bambino, dell’età dell’asilo, era seduto sulle ginocchia del padre e insieme sembravano usciti da una fiction televisiva sul buonista: belli, puliti, educatissimi.  
 Il bambino, in piena “età dei perché”, faceva tantissime domande al padre: “Perché la signora porta la busta?”, “Perché la metropolitana balla?” e così via. Piano piano anche gli spallatissimmi utenti della Metro B si sono messi a fare tutto il loro campionario da nonni pubblicitari:ammiccamenti, smorfiette, batti5 e "ciao ciao" con la manina.  

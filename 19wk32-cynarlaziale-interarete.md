@@ -1,7 +1,8 @@
 # Cynar laziale
 
 #### della serie “in giro" - wk03 2018  
-![](/interarete076.png "Trenino Giallo - stazione")  
+![](https://drive.google.com/uc?id=1kkaFNTHzmGsh-HmHJlkiIimSnP_gW01K "Trenino Giallo - stazione")  
+<!--- /interarete076.png  --->  
 
 Mattina presto, fa il suo freddo. Usciamo dalla stazione delle Laziali con un bel sole gagliardo che abbaglia ma non scalda e prende d’infilata tutta via Giolitti. E' un controluce dalle geometrie regolari (linee oblique, cilindri, ciminiere) e figuri umani vaganti. Tutti insieme sarebbero anche metafisici se non fosse che poi visti vicino scopri che sono piuttosto sul rappezzato.  
 Qui, davanti alle Laziali, è come se uno fosse sbarcato a Dover e per attraversare deve prima guardare a destra e poi a sinistra. Il traffico infatti l’hanno canalizzato invertito (anche se viene giù con naturale baldanza). Lo sanno tutti: *LOOK RIGHT*.  

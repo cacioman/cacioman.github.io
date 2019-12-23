@@ -1,7 +1,8 @@
 # carta velina 
 
 #### della serie “intera rete” - wk10 2018  
-![](/interarete052.png "Anagnina - stalli")  
+![](https://drive.google.com/uc?id=1ffpqfAP40Br6ICwPPYCZop9VRWTcYcP2 "Anagnina - stalli")  
+<!-- /interarete052.png -->  
 
 Anagnina, sera, terminal dei bus COTRAL. Freddo boia. Da una parte parcheggi e sterri, dall'altra i rumeni che smontano il mercatino. 
 Sotto le pensiline smozzicate la luce del piazzalone da gialla diventa più bluastra. E' per via dei nuovi monitor *sedici-noni* che mandano in tempo reale l'aggiornamento delle corse in partenza. 

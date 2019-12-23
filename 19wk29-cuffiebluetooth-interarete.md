@@ -1,7 +1,8 @@
 # cuffie bluetooth  
 
 #### della serie “note a margine” - wk07 2018  
-![](/interarete047.png "Metro B, Termini - readers")  
+![](https://drive.google.com/uc?id=1wGdmO_PFWSFYHEMjAPRvzp8QCo_EgXSE "Metro B, Termini - readers")  
+<!--- /interarete047.png --> 
 
 In treno c'è questa coppia di ragazzini stronzetti sui quindici-sedici che vanno a scuola. Alla partenza uno ha aspettato l'altro tenendogli il posto occupato e ricacciando indietro, con l'espressione sfottente, tutti quelli che provavano a sedersi. L'amico, appena arrivato, fa vedere le sue cuffie nuove: sono bluetooth. Le ha ha avuto dal padre o le ha preso al padre. Ne discutono e le provano molto.  
 Arrivati alla loro fermata, per uscire e mettersi il giaccone al ragazzino gli parte il telefono dalle mani, fa un volo assurdo e gli si infila sotto  le sedie che neanche si vede.  

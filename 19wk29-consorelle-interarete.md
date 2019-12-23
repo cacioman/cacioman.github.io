@@ -1,7 +1,8 @@
 # consorelle 
 
 #### della serie "intera rete" - wk06 18  
-![](/interarete045.png "Ciampino - twins")   
+![](https://drive.google.com/uc?id=1gOOAH1bgmeXDEhIhXYJ2sjBnmmdt1fNF "Ciampino - twins")   
+<!--- /interarete045.png  --->  
 
 Sul treno accanto a me si siede una suorina vestita di bianco, secca secca, diafana, quasi trasparente. E' giovane ma non bella, sorriso cavallino, forse francese. Da una borsa molto anonima le scivolano fuori dei vecchi libri con le copertine consumate e scolorite.  
 A me però tutto 'sto candore non m'imbambola: questa, con quel sorriso disarmante, ci mette un attimo a dirti cose terribili, tipo che i *contronatura* se la sono cercata.  

@@ -1,7 +1,8 @@
 # ora di religione  
 
 #### della serie “in giro”  - wk40 2018
-![](/interarete074.png "Metro B - back home")  
+![](https://drive.google.com/uc?id=1uq_SC7M-all40R6pxLV23FcK7WKkLw5k "Metro B - back home")  
+<!--- /interarete074.png  --->  
 
 Piazzale dei Partigiani, subito fuori dalla stazione Ostiense, dopo le rampe dismesse del parcheggio abbandonato, dopo gli stalli dei bus, proprio sotto i palazzoni, c'è un'aiuoletta di erbacce con sopra una palma nana mezzo sfiatata. Lì, schiantato sotto il sole agostano, praticamente *tra l'oleandro e il baobab*, un signore musulmano ha steso un cartone e si è messo a fare le abluzioni rituali per raccogliersi in preghiera.   Intanto da dietro, quatto quatto, arriva un tizio che gira intorno non osservato (pensa lui). Vuole fare delle foto col telefonino.  
 Prova prima da sinistra. Poi prova da destra. Alla fine si decide e va goffamente dritto per dritto a chiedere il permesso al musulmano.  

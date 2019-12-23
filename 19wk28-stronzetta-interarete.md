@@ -1,7 +1,8 @@
 # stronzetta   
 
 #### della serie “una settimana così” - wk26 2018  
-![](/interarete038.png "Metro B, Stazione Roma Termini - calca")  
+![](https://drive.google.com/uc?id=1p2QMK8ySFH-waRqGwTLaeFKUqDR2a6TH "Metro B, Stazione Roma Termini - calca")  
+<!-- /interarete038.png  --->  
   
 Dentro la Metro B, in arrivo alla stazione di Termini.  
 Sulla porta davanti a me c'è una signora sui cinquanta, una un po' di paese, mani gonfie e buste della spesa. Direi che sta tornando a casa dopo aver lavato parecchi pavimenti altrui.  
