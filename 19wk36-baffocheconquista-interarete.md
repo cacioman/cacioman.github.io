@@ -1,7 +1,8 @@
 # baffo che conquista  
 
 #### della serie “intera rete” - archivio wk18 2018  
-![](/interarete107.png "Roma Termini - panorama" ) 
+![](https://drive.google.com/uc?id=1owT0l9Jc4Dkm-WIkWv5S50khAUWRyAW4 "Roma Termini - panorama" ) 
+<!--- /interarete107.png  --->  
 
 Una signora sui sessanta, tutta leopardata, scende dal Civitavecchia-Roma e chiede indicazioni al primo che trova: un addetto delle pulizie (un tipo tarchiato, sui sessanta, baffone, barba sfatta). Lui le dice che dove stanno loro ora, quelle sono le *Laziali* e lei invece deve attraversare mezza Termini per andare proprio dall'altra parte.  
 Lei è interdetta. Lui allora con la manona traccia nell'aria una specie di linea ideale che s'alza e taglia a perpendicolo tutta la fiumana dei binari che, dal ventiquattro all’uno, scorrono davanti a loro.  

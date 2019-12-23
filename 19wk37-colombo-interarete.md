@@ -1,7 +1,8 @@
 # colombo 
 
 #### della serie "intera rete" - wk35 17  
-![](/interarete121.png "Metro B") 
+![](https://drive.google.com/uc?id=13uNE7F5YFy5WEN-aj86dEKROUyYxNqHn "Metro B") 
+<!--- /interarete121.png  --->  
 
 Ad una certa ora del mattino sul 769 attaccano a suonare i cellulari delle extracomunitarie, badanti o COLF che siano. E’ tutto un susseguirsi di musichette strane e di mani che si tuffano nelle borsette. Le conversazioni sono sempre le stesse: “Sì, sono sull’auto. Sì, sì, sto arrivando.”  
 Non dicono la verità, non stanno arrivando: la Colombo è congestionata e il 769 è bloccato al semaforo dell’incrocio con cui dovrebbe attraversarla.  

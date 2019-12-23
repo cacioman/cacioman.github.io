@@ -1,7 +1,8 @@
 # comunicazioni personali
 
 #### della serie  "intera rete" - wk40 2017
-![](/interarete118.png "Roma Ostiense") 
+![](https://drive.google.com/uc?id=1PcptxIVr1hYfUrxzT3o907lKVGwJEH-t "Roma Ostiense") 
+<!--- /interarete118.png  --->  
 
 A Ciampino sul treno sale uno sui quaranta, pacioccone, aria innocua, sandali e T-shirt della Maui corta. Telefona ad un amico. 
 Il treno fa un gran fracasso di ferraglia e lui deve parlare ad alta voce, spesso ripetendo tutto d capo.   

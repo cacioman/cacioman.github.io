@@ -1,7 +1,8 @@
 # confidenza
 
 #### della serie “pendolare stagionato” - wk03 2018  
-![](/interarete088.png "Ciampino - mestizia del mattino")   
+![](https://drive.google.com/uc?id=1CU0JX62Sdf9FyVtGPbpOn-pVhFD9O3NS "Ciampino - mestizia del mattino")   
+<!--- /interarete088.png  --->  
 
 Il pendolare stagionato non dà confidenza a nessuno. Manco morto. Al più accetta uno scambio di sguardi però rimanendo impassibile. Per non sbagliare, il pendolare stagionato c’ha sempre il muso lungo e risponde solo se interrogato.  
 Il pendolare stagionato non è cattivo ha solo il terrore sacro di finire nel tunnel delle combriccole, di quelli che fanno comunella, che si tengono il posto ("ma Gabriella oggi non arriva ancora?"), che giocano a carte, che parlano dei figli, delle vacanze fatte o da fare, che ridono (ce n'è sempre uno che fa battute allusive e gli atri che ridono) o che sospirano  (perché la stagione troppo calda, troppo fredda, le scuole che iniziano, le scuole che finiscono, ecc).  

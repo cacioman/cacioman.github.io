@@ -1,8 +1,9 @@
 # eroi  
 
 #### della serie “intera rete” - wk37 2018  
-![](/interarete083.png "Metro B - appesi")  
-  
+![](https://drive.google.com/uc?id=1H_bPJ61THiUcqWQLAjv8rzeFi3khHzh2 "Metro B - appesi")   
+<!--- /interarete083.png  --->   
+
 Salgo sul 670. Dentro un po' di nervosismo. Seduto a ridosso dell'autista c'è uno che recita ad alta voce una sua cantilena: "DEO! - Mle mle mle! - Grazia! TUAAA! - Mle mle mle! - DEO! - Mle mle mle! - Grazia! PIENAA! - Mle mle mle - Mle mle mle - SANTISSIMAAA !”
 L’autista però è impassibile e anche io fingo di essere un uomo di mondo.  
 Alla fermata successiva davanti alla palina, praticamente in mezzo alla strada, c'è un tipo sui sessanta, berretto verde militare, che ci aspetta a gambe larghe. Quando arriviamo fa l'espressione truce e non si sposta di un millimetro. Fa scudo. Ci fermiamo prima. Appena aprono le porte, Berretto verde va dritto a testa bassa dall’autista: "Te pare questa l’ora d’arrivare!? Eh? E’ questa l’ora?"  

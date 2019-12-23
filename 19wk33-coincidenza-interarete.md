@@ -1,7 +1,8 @@
 # coincidenza
 
 #### della serie “intera rete” - wk27 2018  
-![](/interarete098.png "Metro B - Garbatella")   
+![](https://drive.google.com/uc?id=1ELZKNkwxQaGAGynm0vszEX0Rzu3jkjbH "Metro B - Garbatella")   
+<!--- /interarete098.png  --->  
 
 Sul treno in arrivo a Ciampino c'è una signora seduta con lo sguardo perso. Parla con una davanti a lei, forse è un'amica. Dice che le sta salendo l'ansia: a Ciampino deve cambiare treno per andare a Velletri e lei non sa bene come fare.  
 L'amica, ma forse è più una che ha appena conosciuto, le spiega che non c’è problema, che ha tutto il tempo e che è tuto molto semplice. Deve solo scendere dal treno, prendere il sottopasso e risalire sul binario due. *Binario due?* Sì, di solito è il binario per Velletri. *Di solito?!* Sì, dico di solito ma è praticamente sempre, poi chiedi... *Ah, beh, sì, chiedo...* Intanto la chiamano al telefono. Lei a quel punto prende un tono ancora più strascicato. *Sì* dice, sta sul treno e *ora cambia per Velletri, ora ora, perché c'è una signora che ha incontrato...* dall'altra interrompono sbrigativi.  

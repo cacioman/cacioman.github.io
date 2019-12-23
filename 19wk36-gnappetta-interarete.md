@@ -1,7 +1,8 @@
 # gnappetta  
 
 #### della serie "intera rete" - wk04 2018  
-![](/interarete110.png "Roma Terini - lato Marsala") 
+![](https://drive.google.com/uc?id=1JFEFNYdX7gDBAJo0flX8lbFrQO3lUfZ3 "Roma Terini - lato Marsala") 
+<!--- /interarete110.png  --->  
 
 Termini, siamo in piedi sotto il tabellone delle partenze, tutti in attesa che diano i nostri binari.  
 Una gnappetta sui quaranta, una specie di suora laica, insignificante, si mette a redarguire un ragazzone, sguardo pericolosamente assente, che le darà venti centimetri di altezza. Non è per niente spaventata.   

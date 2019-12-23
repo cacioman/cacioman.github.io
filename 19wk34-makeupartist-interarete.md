@@ -1,7 +1,8 @@
 # make up artist 
 
 #### della serie “intera rete” - wk40 2018  
-![](/interarete091.jpg?v=2 "Metro B San Paolo - segnalazioni")   
+![](https://drive.google.com/uc?id=1O42LRmdVzflp3DjPRGUHzGV7wcEhQNfX "Metro B San Paolo - segnalazioni")   
+<!--- /interarete091.jpg  --->  
 
 Mattina. In treno è pieno e stiamo tutti in piedi. Io ho trovato da appoggiarmi vicino al finestrino e mi leggo un libro in posa plastica.  
 Sale una quarantenne, bassa e pettoruta, che viene dritta sparata, mi si mette proprio sotto il naso e attacca a truccarsi.   

@@ -1,7 +1,8 @@
 # blind date  
 
 #### della serie “intera rete” - wk41 2018  
-![](/interarete093.png "Tor Vergata")   
+![](https://drive.google.com/uc?id=1YQOGvExggufdW_tyJd1KKwLJKO23atTr "Tor Vergata")   
+<!--- /interarete093.png  --->  
 
 Tor Vergata stazione, imbrunire. A ridosso dello stradone, sotto il lampione dove ci si fa a venire aprendere, siamo in quattro: oltre a me ci sono un ragazzotto, una tipa sui trentacinque, valigia ed espressione spaurita, un tipo sui quaranta che si guarda intorno in attesa di qualcuno.
 Al tipo sui quaranta suona il telefono. Io e il ragazzo capiamo subito che a chiamarlo è proprio la tipa con la valigia, i due interessati invece ci mettono un po' per accorgersene. Chiudono il telefono, guardano me e il ragazzotto, si guardano loro due, parte un breve scambio di battute smozzicate:  

@@ -1,7 +1,8 @@
 # buonismi  
 
 #### della serie “intera rete” - wk40 2018  
-![](/interarete092.png "Muratella")   
+![](https://drive.google.com/uc?id=1BWfmlriq8drBy12Z9Nh4sMLtX_RRGaKz "Muratella")   
+<!--- /interarete092.png  --->  
 
 Treno a tarda sera, fermo in partenza. Siamo in pochi. Seduta poco lontano da me c'è una ragazza magretta, tipo ucraina, acciambellata col suo smartphone. Io mi mangio un panino.   
 Quando siamo proprio alla partenza, un ragazzone smandrappato, braccia tatuate blu e verdi, risale ciondolando il corridoio. Chiede se qualcuno gli presta il telefonino: deve avvertire casa che fa tardi. Ovviamente, di quei pochi che siamo, nessuno gli crede. Io anzi metto via le mie cose sparse sul sedile: già mi vedo a rincorrerlo per tutta Termini perdendo così lui e pure l'ultimo treno per casa (senza contare la figura da fesso).  

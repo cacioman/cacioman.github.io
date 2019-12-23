@@ -1,7 +1,8 @@
 # traguardo  
 
 #### della serie “intera rete” - wk39 2018  
-![](/interarete090.png "Leonardo Express")   
+![](https://drive.google.com/uc?id=1pZu5fGHPB0Plz1EsnVtY7tx_Adjlm725 "Leonardo Express")   
+<!--- /interarete090.png  --->  
 
 Come emergo dalle scale della Metro di Re di Roma intravedo il 671 che parte. Cravatta al vento mi lancio subito alla rincorsa del bestione. Obiettivo: la fermata successiva, quella di piazza Tuscolo. Una vocina dice: *mah!..*  
 Per venti metri sono il figlio del vento, plastico e bellissimo. Poi però meno (e poi ancora meno). Il 671 si allontana. Io insisto. La vocina dice: *però!*  

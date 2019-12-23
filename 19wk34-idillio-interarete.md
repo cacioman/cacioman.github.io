@@ -1,7 +1,8 @@
 # idillio  
 
 #### della serie “intera rete” - wk38 2018  
-![](/interarete086.png "Metro B - Roma Termini")   
+![](https://drive.google.com/uc?id=1klVQNIjNzVTZXxYvce_T2_0ujSkwStT9 "Metro B - Roma Termini")   
+<!--- /interarete086.png  --->  
 
 Di prima mattina sul treno salgono un ragazzo e una ragazza sui vent'anni, cicciottelli, abbastanza ciancicati, occhio spento.  
 Sono di quelli che ogni cosa è: *Amo'* qui e *Amo'* là. Amo'lei c'ha subito caldo e prova a togliersi la maglia si incastrata malamente el sedile ricurva in avanti. Amo'lui prova ad aiutarla ma lascia subito perdere per grattarsi il petto con espressione distratta. Amo'lei in qualche riemerge dalla sua maglia e senza requiminazioni si accoccolano meglio.    

@@ -1,7 +1,8 @@
 # brecciolino  
 
 #### della serie “intera rete” - wk35 2018  
-![](/interarete080.png "Roma Ostiense - binario 1")   
+![](https://drive.google.com/uc?id=1Nk8_OW5Qm7QYqStIRIB3azh9y4noUiU8 "Roma Ostiense - binario 1")   
+<!--- /interarete080.png  --->  
 
 A Ostiense sul parapetto del binario uno, siamo appoggiati in tanti. Aspettiamo il treno da Pisa per Termini. E' che la Metro B è ferma e a noi c'ha detto pure troppo bene di riuscire a prendere il Roma-Lido, chi a San Paolo chi a Marconi, anche se poi arrivati a Piramide niente *tapis roulant* (quand'è così la galleria la tengono sempre chiusa) e ci mandano tutti sullo stradone per piazzale dei Partigiani e Ostiense. 
 Fa un caldo boia. Un ragazzone su venticinque, ciabattine, pantaloncini e un taglio assurdo di capelli, arriva con gli ultimi smadonnando per il caldo, i mezzi e tutto il resto. Dalle smorfie deve fargli anche male un piede. Lo appoggia storto e da quel lato è tutto scrociato: c'ha come grosse macchie rosa sulla pelle. Spalle, braccio e gamba. È di quel rosa-bianco che viene dopo le croste e ora gli risalta parecchio anche per via dell'abbronzatura delle parti sane, bella nera.   

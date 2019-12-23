@@ -1,7 +1,8 @@
 # comare  
 
 #### della serie “intera rete” - wk27 2018  
-![](/interarete099.png "Porta Maggiore - tram")   
+![](https://drive.google.com/uc?id=1H1lIEVTS9MwLGyFvKEcudZ7PzqpyltXC "Porta Maggiore - tram")   
+<!--- /interarete099.png  --->  
 
 Sul treno al ritorno trovo una ragazza sulla trentina, belloccia, che telefona con un'amica. Straparla a tutto volume, un po' per superare il fracasso del Roma-Colleferro, un po' perché per una sua posa melodrammatica "non me importa più niente di niente".  
 Dice che s'è lasciata con uno, direi un suo collega, forse un suo ex capo, di sicuro più grande di lei, tipo un dirigente dell'ufficio, uno sui cinquanta con moglie e figli.  

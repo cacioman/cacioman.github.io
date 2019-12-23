@@ -1,7 +1,8 @@
 # ars gratia artis
 
 #### della serie "intera rete" - wk25 2014  
-![](/interarete105.png?v=2 "Roma Ostiense - sottopasso")  
+![](https://drive.google.com/uc?id=1uT_IR-qGx5VIWApHixGWzvNx9blm7fQP "Roma Ostiense - sottopasso")  
+<!--- /interarete105.png  --->  
 
 A San Paolo salgono tre ragazzi, sui sedici-diciotto anni, forse Rom, due due violini e una fisarmonica. Il vagone è abbastanza affollato ma lo stesso uno dei due violini attacca con la formula di rito: "Signori buona giornata a tutti...". Si ferma. L'altro violino probabilmente gli sta dicendo di lasciar perdere, che non c'è spazio per suonare. "Guarda come si fa" deve replicargli il primo violino e attacca a suonare tutto storto.  
 La fisarmonica, un tipo allampanato, non dice niente: lui non ha problemi. S'è trovato uno spazio davanti alla porta e segue gli altri due da sopra le teste di tutti. A quel punto anche il secondo violino, un tipo basso e sveglio, non si fa pregare. Solo ogni tanto ammicca ironico alle punte degli archetti che spigano in mezzo alle teste di tutti. 

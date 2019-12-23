@@ -1,7 +1,8 @@
 # occhiacci  
 
 #### della serie “intera rete” - wk41 2018  
-![](/interarete102.png "Metro B - Colosseo")   
+![](https://drive.google.com/uc?id=1D2mJKMAUjOzotYBkRh_LwqoRwonD41J3 "Metro B - Colosseo")   
+<!--- /interarete102.png  --->  
 
 Quando aprono le porte del treno mi trovo davanti un muro affollato di passeggeri: quasi nessuno scende e quelli rimasti serrano le fila per scoraggiare noi nuovi intrusi. Seduto sullo strapuntino dell'ingresso c'è pure un ragazzo tutto ricurvo sul telefonino. Salgo senza preoccuparmi troppo di urtarlo.  
 “Ehi!" mi dice offeso "Ma io sto scrivendo !”    
