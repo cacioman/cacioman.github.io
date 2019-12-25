@@ -59,3 +59,6 @@ All'improvviso una voce ci ha gelati: "Controllo biglietti". Poi una risata sgua
 
 ---  
 [home](/index.md) - [about me](/aboutme.md)   
+<!--stackedit_data:
+eyJoaXN0b3J5IjpbLTIxMzc1MjYwMTVdfQ==
+-->
