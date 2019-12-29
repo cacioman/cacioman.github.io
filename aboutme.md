@@ -8,7 +8,7 @@ Vivo a Frascati, lavoro a Roma, milite esente, patente munito (ma preferisco i m
 
 Il mio blog è [**cacioman**](/index.md)  dove pubblico microstorie inconcludenti, foto fatte male, video insulsi e altre cose così capitate andando in giro.  
   
-Seguimi con [twitter](https://twitter.com/cacioman), [tumblr](https://cacioman.tumblr.com), [bloger](https://cacioman.blogspot.com) o [newsletter](https://tinyletter.com/cacioman).  
+Seguimi con [twitter](https://twitter.com/cacioman), [tumblr](https://cacioman.tumblr.com), [blogger](https://cacioman.blogspot.com) o [newsletter](https://tinyletter.com/cacioman).  
 
 >      
 
@@ -16,6 +16,3 @@ Seguimi con [twitter](https://twitter.com/cacioman), [tumblr](https://cacioman.t
 ---    
 [**cacioman@gmail.com**](mailto::cacioman@gmail.com)  
    
-<!--stackedit_data:
-eyJoaXN0b3J5IjpbNDIwNjYxOTU3XX0=
--->
