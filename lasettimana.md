@@ -67,7 +67,19 @@ E' stata tutta una settimana così: di avvilenti, disperatissimi e inutili sforz
 
 **tre a zonzo** - wk24 2019  
 Sul trenino per Frascati sale una famigliola: un adolescente lentigginoso dalle incredibili orecchie a sventola e due mamme ciccione. Devono essere inglesi. Le mamme sbuffano come mantici per via dei quattrocento metri di corsa disperata che con bagagli e tutto hanno fatto da in fondo a Termini fino a quaggiù al binario 18. Il ragazzo ovviamente le sfotte ma c'ha poco da scoattare se solo si guardasse gli enormi padiglioni ormai rosso sangue.  
-E' stata tutta una settimana così: nella norma.  
+E' stata tutta una settimana così: nella norma.   
+
+**San Paolo**  - wk#23 2019  
+Mi sono accorto che il barbone, quello che sta sempre mezzo rintontonito all'ingresso della Metro San Paolo, ora s'è un po' rivitalizzato a vendere delle cose sue. Le mette su una scatola di cartone rovesciata. All'inizio erano cose veramente improbabili (tipo un mandarino, una mela e una banana un po' macchiata: uno, uno e uno) ma poi c'ho visto delle scarpe da donna usate, sia sandali che con la zeppa, massimo tre-quattro paia ma ben esposte e valorizzate. Ieri c'ho beccato pure una signora che se le provava. Una signora nera sui cinquanta, ben vestita, che si rammaricava che di non trovare il numero suo e lui la guardava come dire "doveva passare prima...".   
+E' stata tutta una settimana così: dal grande impulso commerciale.  
+
+**reparto di elite** - week #03 2019   
+Su un sentiero tra Colle di Fuori e Rocca Priora, in un tratto abbastanza antropizzato, mi si para davanti un militare in mimetica e mi punta addosso il suo un fucile d'assalto. Mi blocco. Anche Ciccio, il prode cane cagasotto, rimane interdetto ma quello grida "Luce rossa! Luce rossa!" : è solo uno di quelli che giocano a spararsi.  
+Del resto c'è chi la domenica si traveste da reparto d'elite e chi si traveste da piccolo esploratore (come me che poi non sono neanche tanto piccolo come sploratore). 
+Col tizio del reparto di *elitè* ci scambiamo anche due parole. E' pure una personcina a modo e lo sono anche i suoi compari che mano a mano escono fuori dal sottobosco dove s'erano perfettamente mimetizzati ("perfettamente" per me che non ci vedo). Se capitasse veramente, grosso e fesso come sono, sarei il primo ad essere impallinato. Bersaglio facile, lento e prevedibile, manco dieci punti ci vincerebbero.
+"Siete tutti innocui vero?" chiedo comunque mezzo sfottente.
+"Affermativo" rispondono quello prontamente. Ecco appunto.  
+E' stata una settimana così: dai risvolti inquietanti.  
 
 **dettato** - week#47 2018  
 Treno del ritorno. Accanto a me c'è uno sui quaranta che telefona con delle grosse cuffie di colore indaco (tipo Beats). Ha l'espressione assente e guarda fisso sulla poltroncina davanti. Risponde solo a intervalli regolari, tipo ogni dieci secondi, scandendo singole parole con tono stentoreo (per via anche delle cuffie). Le parole sono: CONTRAZIONI, SPASMI, PERISTALTICI, PALPITAZIONI e un altro paio così. Mi ha ricordato di quando, appena laureato, ho fatto una selezione all'Italcable. Ci chiesero di scrivere in un minuto tutte le parole che iniziavano con la lettera "s". "Così, senza pensarci" dissero in tono leggero. Io ne scrissi subito una marea. Le prime tre, erano: sesso, sistole e sifilide. Mi sa sono bastate queste tre a fottermi.    

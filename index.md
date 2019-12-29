@@ -3,14 +3,14 @@
 
 [![](https://drive.google.com/uc?id=16LFclKTtuFW_HUBIWQx2_9K0FVb97pc_ "fotoblog")](https://photos.app.goo.gl/ys8AAiCGfMq13ojq5)  
 
-**update week #50**  
+**week #50**  
 - del [policlinico](/19wk50-policlinico-lasettimana.md) di Roma che a ben guardare c'ha il suo fascino  
 - una microstoria losca di [ciabatte cinesi](/19wk36-ciabatte-interarete.html) e del casino che hanno procurato in reparto     
 - foto di [quadrati](https://photos.app.goo.gl/zQsM9qa9a1SiPt5z8)    
 - sono andato a vedere ["l'Abisso"](/19wk50-calata-roma.html) e ci faceva un freddo boia    
 - ancora e sempre le foto del [fotoblog](https://photos.app.goo.gl/ys8AAiCGfMq13ojq5)  
 
-**update week #48 - #49**  
+**week #48 - #49**  
 - [una settimana](/19wk49-performance-lasettimana.md) dalle inattese *performace*  
 - foto di quando si sta [appesi](https://photos.app.goo.gl/ckHYESejN2H6qt3S6) come sugli alberi le foglie  
 - video insulso sul [via vai](https://youtu.be/Pu4mT19fQVY) nella penombra della Metro B (veramente avvincente!)  
