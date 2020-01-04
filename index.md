@@ -3,6 +3,15 @@
 
 [![](https://drive.google.com/uc?id=16LFclKTtuFW_HUBIWQx2_9K0FVb97pc_ "fotoblog")](https://photos.app.goo.gl/ys8AAiCGfMq13ojq5)  
 
+**week #51-#52-#01**  
+- di scabrose situazioni nell'alta [ciociaria](/19wk36-ciociara-interarete.md)  
+- sul pericolo di una imminente [sostituzione etnica](/20wk01-sostituzione-italexit.md)  
+- di uno che fa [un punto](/19wk36-comunicazionipersonali-interarete.md) su certe sue questioni personali  
+- foto album di [scale](https://photos.app.goo.gl/vHx1LAQk8Xs6YTWW9) dove salire, scendere e sopratutto sedercisi  
+- foto album di roba [verde](https://photos.app.goo.gl/Qb8hwUaHCyeUmyqx5), non solo alberi  
+- foto album di [due ruote](https://photos.app.goo.gl/8hB2sPqda4Ct1JgNA), forse sono uscito fuori dal *clichè* della bici appoggiata al portone   
+- il [fotoblog](https://photos.app.goo.gl/ys8AAiCGfMq13ojq5) in questo periodo è rimasto quasi al palo   
+
 **week #50**  
 - del [policlinico](/19wk50-policlinico-lasettimana.md) di Roma che a ben guardare c'ha il suo fascino  
 - una microstoria losca di [ciabatte cinesi](/19wk36-ciabatte-interarete.html) e del casino che hanno procurato in reparto     
