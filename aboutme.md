@@ -6,7 +6,7 @@
 Claudio Gatti: nato a Roma il 3/6/63, coniugato, due figli.  
 Vivo a Frascati, lavoro a Roma, milite esente, patente munito (ma preferisco i mezzi), buonista.  
 
-Il mio blog è [**cacioman**](/index.md)  dove pubblico microstorie inconcludenti, foto fatte male, video insulsi e altre cose così capitate andando in giro.  
+Il mio blog è [**vedo gente, faccio code**](/index.md)  dove pubblico microstorie inconcludenti, foto fatte male, video insulsi e altre cose così capitate andando in giro.  
   
 Seguimi con [twitter](https://twitter.com/cacioman), [tumblr](https://cacioman.tumblr.com), [blogger](https://cacioman.blogspot.com) o [newsletter](https://tinyletter.com/cacioman).  
 
