@@ -1,5 +1,5 @@
 # ragazzi   
-### della serie "la settimana" - wk02 2020  
+### della serie "tre note a margine" - wk02 2020  
 
 ![](https://drive.google.com/uc?id=1WQShIQLOqIHtsR6xfHM8WrQ0oIPPZuQg "Roma, 766 - tre")  
 
