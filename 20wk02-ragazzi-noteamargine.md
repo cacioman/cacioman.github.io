@@ -1,7 +1,7 @@
 # ragazzi   
 ### della serie "tre note a margine" - wk02 2020  
 
-![](https://drive.google.com/uc?id=1WQShIQLOqIHtsR6xfHM8WrQ0oIPPZuQg "Roma, 766 - tre")  
+![](https://drive.google.com/uc?id=1SkrUGZZDpBMzLivyyx_sp3yB9EGG1jEn "Roma, 766 - tre")  
 
 **colored**  
 Scendendo verso Cisternole incrocio un ragazzo nero, di quelli centrafricani che camminando mangia un *cachì* di quelli vaniglia, grosso come un pompelmo che gli copre mezza faccia. Lo addenta di gran gusto e l'arancione del frutto gli contrasta particolarmente bene col marrone scuro della faccia.  
