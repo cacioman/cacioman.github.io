@@ -4,7 +4,7 @@
 ![](https://drive.google.com/uc?id=1SkrUGZZDpBMzLivyyx_sp3yB9EGG1jEn "Roma, 766 - tre")  
 
 **colored**  
-Scendendo verso Cisternole incrocio un ragazzo nero, di quelli centrafricani che camminando mangia un *cachì* di quelli vaniglia, grosso come un pompelmo che gli copre mezza faccia. Lo addenta di gran gusto e l'arancione del frutto gli contrasta particolarmente bene col marrone scuro della faccia.  
+Scendendo verso Cisternole incrocio un ragazzo nero, di quelli centrafricani. Cammina mangiando un *cachì* vaniglia, grosso come un pompelmo. Gli copre mezza faccia. Lui lo addenta di gran gusto e l'arancione del frutto gli contrasta particolarmente bene col marrone scuro della faccia.  
 
 **fuori sede**  
 Zona Santa Maria Maggiore, mattina presto. Incrocio un ventenne segaligno, cuffiette e sguardo perso. Espressione: primo risveglio non ancora metabolizzato. Quando mi passa accanto pronuncia senza espressione la seguente frase: "Questa notte mi sono cambiato il pigiama". Mi sa che sta telefonando alla madre.  
