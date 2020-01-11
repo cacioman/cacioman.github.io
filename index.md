@@ -1,7 +1,16 @@
 # vedo gente, faccio code  
 ### microstorie inconcludenti, foto fatte male, video insulsi e altre cose così capitate andando in giro     
 
-[![](https://drive.google.com/uc?id=17er0b3uh8wpW3HG-Bp5FLLYNk64U8o0k "San Pietro, basilica di - coda")](https://photos.app.goo.gl/ys8AAiCGfMq13ojq5) 
+[![](https://drive.google.com/uc?id=1ED73Jt4QIpnqthtkfLjrJb6potvABdVb "Roma Termini, binario 18 - coda")](https://photos.app.goo.gl/ys8AAiCGfMq13ojq5) 
+
+**week #02**  
+- fotoalbum di [foto di foto](https://photos.app.goo.gl/nLBfCofiNfdtAiWcA) (di foto di foto) 
+- di discorsi da autobus in zona [la Favorita](/20wk02-prospettive-lasettimana.md) direzione Tommaso Natale (PA)  
+- il video insulso di uno che invoca ["palla!.."](https://youtu.be/_2n0INR4Y7w), durata 10sec   
+- di colori abbinati, di [cambi di stagione](/20wk02-ragazzi-noteamargine.md) e di coperture economiche    
+- di quanto anche le [gnappette](/19wk36-gnappetta-interarete.md) nel loro piccolo si incazzano   
+- di calze, befane, [ragazze carine](/20wk02-befana-italexit.md) e blocchi di liquirizia   
+- la nuova strisciata di foto del [fotoblog](https://photos.app.goo.gl/ys8AAiCGfMq13ojq5)  
 
 **week #51-#52-#01**  
 - di scabrose situazioni nell'alta [ciociaria](/19wk36-ciociara-interarete.md)  
@@ -18,11 +27,13 @@
 - foto di [quadrati](https://photos.app.goo.gl/zQsM9qa9a1SiPt5z8)    
 - sono andato a vedere ["l'Abisso"](/19wk50-calata-roma.html) e ci faceva un freddo boia    
 
+<!---  
 **week #48 - #49**  
 - [una settimana](/19wk49-performance-lasettimana.md) dalle inattese *performace*  
 - foto di quando si sta [appesi](https://photos.app.goo.gl/ckHYESejN2H6qt3S6) come sugli alberi le foglie  
 - video insulso sul [via vai](https://youtu.be/Pu4mT19fQVY) nella penombra della Metro B (veramente avvincente!)  
 - foto di [coppie lui/lei](https://photos.app.goo.gl/auwH1qsLiHtnewvEA)  
+--->  
 
 ---  
 [**fotoblog**](https://photos.app.goo.gl/ys8AAiCGfMq13ojq5) - [p.a.p.z](/papz.md) - [ital exit](/italexit.md) - [note a margine](/incrociati.md) - [la settimana](/lasettimana.md) - [**intera rete**](/interarete.md) - [jogno](/jogno.md) - [video](https://www.youtube.com/channel/UCDoy-lXaaJVugJ9bLVSXGJw?view_as=subscriber) - [a.d.l.g.](https://www.youtube.com/channel/UC8B2bq3VdPtSeLzryWwNAlQ) - [about me](/aboutme.md)  
