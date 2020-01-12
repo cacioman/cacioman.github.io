@@ -3,6 +3,10 @@
 
 ![](https://drive.google.com/uc?id=1ZSpIWft0z6gJwlBOvIUe-6n3cd2syHid "Roma - Scavo Archeologico")  
 
+**vincerò** - wk49 2019  
+Termini. Capotreno sui sessanta che sul marciapiede vuoto passeggia in attesa del verde. Occhio vigile, passo marziale. Percorre larghi cerchi pensosi e prima sommessamente, poi via via in crescendo, intona  "venceremos" degli Inti Illimani. Quando scatta il verde sta bello carico e dà il via suonando le ultime note col fischietto d'ordinanza (e a pieni gagliardissimi polmoni).  
+E' stata una settimana così: di lotta e di governo.   
+
 **tra donne**  - wk47 2019    
 Metro A. Mattina presto. Entra una badante, tipo indiana, con una signora anzianissima e va dritta a cercarle una sistemazione. Non ci sono però più posti liberi: sono stati quasi tutti occupati da uomini che trafficano col telefonino. A ben guardare ne è rimasto uno con una ragazza (ma che dorme profondamente). L'indiana la punta subito anche se per svegliarla deve quasi scuoterla. La ragazza apre gli occhi, capisce la situazione e cede il posto alla vecchia, poi si appoggia mezza impampanita ad una parete. Intanto il resto del vagone segue tutta la vicenda ma in tralice (e da un altro universo parallelo).  
 E' stata una settimana così: abbastanza sullo gnorri.   
