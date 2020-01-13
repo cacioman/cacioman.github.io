@@ -10,7 +10,7 @@ E' stato anche fortunato: due signori hanno prontamente bloccano la reazione del
 "Sì vabbe' ma adesso vieni con me"  
 "Ti sembra che sto scappando?! TI SEMBRA CHE STO SCAPPANDO?!"  
 Continuano così nel silenzio imbarazzato del vagone.  
-Colgo l'occasione per ripromettermi di non fare più foto in Metro, almeno per un po': quel pazzoide col cappottino potrei essere io.   
+Colgo l'occasione per ripromettermi di non fare più foto in Metro, almeno per un po': il prossimo pazzoide col cappottino potrei essere io.   
 
 ---  
 [home](/index.md) - [about me](/aboutme.md)  
