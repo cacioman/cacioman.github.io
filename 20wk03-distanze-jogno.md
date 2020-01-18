@@ -1,4 +1,4 @@
-# distanze  
+# distanze relative  
 ### della serie "jogno" - wk03 2020  
 
 ![](https://drive.google.com/uc?id=1khIo_iMsYlQU7nIDS_WXDEJ98RAPMZO- "Roma Termini - sottopasso")  
