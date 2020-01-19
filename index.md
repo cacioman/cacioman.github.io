@@ -1,7 +1,16 @@
 # vedo gente, faccio code  
 ### microstorie inconcludenti, foto fatte male, video insulsi e altre cose così capitate andando in giro     
 
-[![](https://drive.google.com/uc?id=1ED73Jt4QIpnqthtkfLjrJb6potvABdVb "Roma Termini, binario 18 - coda")](https://photos.app.goo.gl/ys8AAiCGfMq13ojq5) 
+[![](https://drive.google.com/uc?id=1TjUiIqO-U8bfIwu7pQB_e4YwtAXVzfxr "Roma Termini - coda")](https://photos.app.goo.gl/ys8AAiCGfMq13ojq5) 
+
+
+**week #03**  
+- una [settimana passata](/20wk03-inincognito-lasettimana.md) sotto traccia
+- di [distanze](20wk03-distanze-jogno.md) più o meno distanti  
+- fotoalbum di gente che sta [faccia a faccia](https://photos.app.goo.gl/t4DAkoyFZLDQ4gQE9)  
+- di [testate](/20wk03-scapocciati-jogno.md) e di gente che scapoccia
+- una nuova esaltante strisciata di foto del [fotoblog](https://photos.app.goo.gl/ys8AAiCGfMq13ojq5)  
+
 
 **week #02**  
 - fotoalbum di [foto di foto](https://photos.app.goo.gl/nLBfCofiNfdtAiWcA) (di foto di foto) 
@@ -10,7 +19,6 @@
 - di colori abbinati, di [cambi di stagione](/20wk02-ragazzi-noteamargine.md) e di coperture economiche    
 - di quanto anche le [gnappette](/19wk36-gnappetta-interarete.md) nel loro piccolo si incazzano   
 - di calze, befane, [ragazze carine](/20wk02-befana-italexit.md) e blocchi di liquirizia   
-- la nuova strisciata di foto del [fotoblog](https://photos.app.goo.gl/ys8AAiCGfMq13ojq5)  
 
 **week #51-#52-#01**  
 - di scabrose situazioni nell'alta [ciociaria](/19wk36-ciociara-interarete.md)  

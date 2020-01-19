@@ -4,6 +4,9 @@
 
 ![](https://drive.google.com/uc?id=1p6XDP8NiDiDrusTCLLT6lk2uyy6OKst0 "Velletri - Prima i  Veliterni")  
 
+**Black Friday** - nov 2019    
+Faccio una riunione doveper tutto il tempo ci lanciamo in micro scazzi e mezze minacce ma che poi si conclude alla tarallucci e vino. In questo nuovo clima 'volemose bene' ci si accomiata tutti più benevoli (ma sopratutto più liberati): c'è chi dice "buona serata", chi "buon week end" e poi c'è uno che per strafare augura "buon black friday".  
+
 **tutto italiano**  - nov 2019  
 Vado a comprare i sigari e il tabaccaio me suggerisce di acquistarne una nuova versione in cui anche la foglia esterna è italiana, tabacco Kentuky ma italiano, non tabacco Kentuky ma americano. Italiano? il tabacco? Tipo la patata di Avezzano? Naturalmente lo compro, io abbocco a tutto, italiano 100%.  
  
