@@ -8,6 +8,7 @@
 - una [settimana passata](/20wk03-inincognito-lasettimana.md) sotto traccia
 - di [distanze](20wk03-distanze-jogno.md) più o meno distanti  
 - fotoalbum di gente che sta [faccia a faccia](https://photos.app.goo.gl/t4DAkoyFZLDQ4gQE9)  
+- di lenze e [vecchie volpi](/19wk36-lenze-interarete.md)  
 - di [testate](/20wk03-scapocciati-jogno.md) e di gente che scapoccia
 - una nuova esaltante strisciata di foto del [fotoblog](https://photos.app.goo.gl/ys8AAiCGfMq13ojq5)  
 
