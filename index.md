@@ -30,13 +30,14 @@
 - foto album di [due ruote](https://photos.app.goo.gl/8hB2sPqda4Ct1JgNA), forse sono uscito fuori dal *clichè* della bici appoggiata al portone   
 - la solita strisciata di foto [fotoblog](https://photos.app.goo.gl/ys8AAiCGfMq13ojq5)     
 
+<!---  
+
 **week #50**  
 - del [policlinico](/19wk50-policlinico-lasettimana.md) di Roma che a ben guardare c'ha il suo fascino  
 - una microstoria losca di [ciabatte cinesi](/19wk36-ciabatte-interarete.html) e del casino che hanno procurato in reparto     
 - foto di [quadrati](https://photos.app.goo.gl/zQsM9qa9a1SiPt5z8)    
 - sono andato a vedere ["l'Abisso"](/19wk50-calata-roma.html) e ci faceva un freddo boia    
 
-<!---  
 **week #48 - #49**  
 - [una settimana](/19wk49-performance-lasettimana.md) dalle inattese *performace*  
 - foto di quando si sta [appesi](https://photos.app.goo.gl/ckHYESejN2H6qt3S6) come sugli alberi le foglie  
