@@ -3,9 +3,13 @@
 
 ![](https://drive.google.com/uc?id=1ZSpIWft0z6gJwlBOvIUe-6n3cd2syHid "Roma - Scavo Archeologico")  
 
-**vincerò** - wk49 2019  
-Termini. Capotreno sui sessanta che sul marciapiede vuoto passeggia in attesa del verde. Occhio vigile, passo marziale. Percorre larghi cerchi pensosi e prima sommessamente, poi via via in crescendo, intona  "venceremos" degli Inti Illimani. Quando scatta il verde sta bello carico e dà il via suonando le ultime note col fischietto d'ordinanza (e a pieni gagliardissimi polmoni).  
-E' stata una settimana così: di lotta e di governo.   
+**ordine e pulizia** - wk50 2019   
+Policlinico di via Castro Pretorio, quando ci vado non si smentisce mai: sequenze di padiglioni dall'*art déco* al tripudio dell'alluminio anodizzato, camminamenti con tettoie pericolanti che si intersecano su piani sfalsati e direzioni tutte loro, strani personaggi ciondolanti in camici e divise tutte diverse ma tutte rattoppate, le ciabattacce sfondate con cui vanno in giro, scale in giù verso misteriosi sotterranei, indicazioni che fioriscono a stella come una pianta di agave (arrugginita), misteriosi cunicoli che si aprono all'improvviso, porticine, botole, comignoli fumanti, gatti guardinghi che compongono una via di mezzo tra un disegno di Escher e una tavola di Jacovitti.    
+E' stata una settimana così: piuttosto svaccata.  
+
+**vincerò** - wk49 2019   
+Termini. Capotreno sui sessanta che sul marciapiede vuoto passeggia in attesa del verde. Occhio vigile, passo marziale. Percorre larghi cerchi pensosi e prima sommessamente, poi via via in crescendo, intona  "venceremos" degli Inti Illimani. Quando scatta il verde sta bello carico e dà il via suonando le ultime note col fischietto d'ordinanza (e a pieni gagliardissimi polmoni).   
+E' stata una settimana così: di lotta e di governo.    
 
 **tra donne**  - wk47 2019    
 Metro A. Mattina presto. Entra una badante, tipo indiana, con una signora anzianissima e va dritta a cercarle una sistemazione. Non ci sono però più posti liberi: sono stati quasi tutti occupati da uomini che trafficano col telefonino. A ben guardare ne è rimasto uno con una ragazza (ma che dorme profondamente). L'indiana la punta subito anche se per svegliarla deve quasi scuoterla. La ragazza apre gli occhi, capisce la situazione e cede il posto alla vecchia, poi si appoggia mezza impampanita ad una parete. Intanto il resto del vagone segue tutta la vicenda ma in tralice (e da un altro universo parallelo).  
@@ -76,6 +80,13 @@ E' stata tutta una settimana così: nella norma.
 **San Paolo**  - wk#23 2019  
 Mi sono accorto che il barbone, quello che sta sempre mezzo rintontonito all'ingresso della Metro San Paolo, ora s'è un po' rivitalizzato a vendere delle cose sue. Le mette su una scatola di cartone rovesciata. All'inizio erano cose veramente improbabili (tipo un mandarino, una mela e una banana un po' macchiata: uno, uno e uno) ma poi c'ho visto delle scarpe da donna usate, sia sandali che con la zeppa, massimo tre-quattro paia ma ben esposte e valorizzate. Ieri c'ho beccato pure una signora che se le provava. Una signora nera sui cinquanta, ben vestita, che si rammaricava che di non trovare il numero suo e lui la guardava come dire "doveva passare prima...".   
 E' stata tutta una settimana così: dal grande impulso commerciale.  
+
+**sturmtruppen**  - wk07 2019  
+Davanti a noi, sul pendio del Tuscolo che dà sui laghi, c'è una famigliola romana in gita fuoriporta. Si tratta di: un uomo e una donna sui trentacinque (segnaligni e mezzi storti, sicuramente fratello e sorella), i figli di questi (tutti tra i cinque-dieci anni, tranne uno che gattona appena) e i relativi due consorti (un'italiana e un palestrato alla Mastrolindo, forse moldavo o ucraino). Con loro c'è anche Teo un barboncino bianco eccitatissimo da tutto quello spazio aperto.  
+Mastrolindo insiste per non fermarsi e proseguire fino alla collinetta della Croce. Gli altri tre adulti nicchiano. Lui allora prova a convincere i ragazzi. Il cognato, ormai sdraiato sull'erba, commenta: "Costanti', guarda che mo chiamo il telefono azzurro!.." ma la moglie del forzuto è più benevola: "Amo' vai, vai così smetti de rompe li cojoni e io me fumo 'na bella sigaretta".
+Mastrolido, inscalfibile, organizza subito un plotone con relativi gradi: "Tu sei il responsabile di Teo", "Tu sei il responsabile del bastone". Mentre si allontanano in fila indiana lo si sente dire: "Non fate i taliani: non buttate niente a terra". Ai ragazzini questo cimento militaresco piace e pure Teo approva abbaiando entusiasta.  
+Noi intanto guardiamo il panorama (che da qui è bellissimo e arriva fino al mare) mentre il bimbo piccolo bruca in santa pace l'erba del prato. 
+E' stata una settimana così: sovranista.  
 
 **reparto di elite** - week #03 2019   
 Su un sentiero tra Colle di Fuori e Rocca Priora, in un tratto abbastanza antropizzato, mi si para davanti un militare in mimetica e mi punta addosso il suo un fucile d'assalto. Mi blocco. Anche Ciccio, il prode cane cagasotto, rimane interdetto ma quello grida "Luce rossa! Luce rossa!" : è solo uno di quelli che giocano a spararsi.  
