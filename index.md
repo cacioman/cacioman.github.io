@@ -1,8 +1,14 @@
 # vedo gente, faccio code  
 ### microstorie inconcludenti, foto fatte male, video insulsi e altre cose così capitate andando in giro     
 
-[![](https://drive.google.com/uc?id=1TjUiIqO-U8bfIwu7pQB_e4YwtAXVzfxr "Roma Termini - coda")](https://photos.app.goo.gl/ys8AAiCGfMq13ojq5) 
+[![](https://drive.google.com/uc?id=13Hk26DYx11SHeAKnZAso2by849CAlEe2 "Roma Termini - binario 18")](https://photos.app.goo.gl/ys8AAiCGfMq13ojq5) 
 
+**week #04**  
+- di una buona [settimana](/20wk04-vadolungo-lasettimana.md) per andare lunghi
+- di [cantanti confidenziali](20wk04-performers-noteamargine.md), di cantilene arabe e di illusionisti  
+- di foto di un fotoalbum di gente a [testa alta](https://photos.app.goo.gl/q46hKw3pjnXis4ki7) sui tabelloni  
+- di quanto non si deroga ed è [lotta dura](/19wk36-lottadiclasse-interarete.md) senza paura
+- di una nuova ed entusiasmante strisciata di foto del [fotoblog](https://photos.app.goo.gl/ys8AAiCGfMq13ojq5)  
 
 **week #03**  
 - una [settimana passata](/20wk03-inincognito-lasettimana.md) sotto traccia
@@ -10,8 +16,6 @@
 - fotoalbum di gente che sta [faccia a faccia](https://photos.app.goo.gl/t4DAkoyFZLDQ4gQE9)  
 - di lenze e [vecchie volpi](/19wk36-lenze-interarete.md)  
 - di [testate](/20wk03-scapocciati-jogno.md) e di gente che scapoccia
-- una nuova esaltante strisciata di foto del [fotoblog](https://photos.app.goo.gl/ys8AAiCGfMq13ojq5)  
-
 
 **week #02**  
 - fotoalbum di [foto di foto](https://photos.app.goo.gl/nLBfCofiNfdtAiWcA) (di foto di foto) 
@@ -20,6 +24,9 @@
 - di colori abbinati, di [cambi di stagione](/20wk02-ragazzi-noteamargine.md) e di coperture economiche    
 - di quanto anche le [gnappette](/19wk36-gnappetta-interarete.md) nel loro piccolo si incazzano   
 - di calze, befane, [ragazze carine](/20wk02-befana-italexit.md) e blocchi di liquirizia   
+  
+
+<!---  
 
 **week #51-#52-#01**  
 - di scabrose situazioni nell'alta [ciociaria](/19wk36-ciociara-interarete.md)  
@@ -28,9 +35,7 @@
 - foto album di [scale](https://photos.app.goo.gl/vHx1LAQk8Xs6YTWW9) dove salire, scendere e sopratutto sedercisi  
 - foto album di roba [verde](https://photos.app.goo.gl/Qb8hwUaHCyeUmyqx5), non solo alberi  
 - foto album di [due ruote](https://photos.app.goo.gl/8hB2sPqda4Ct1JgNA), forse sono uscito fuori dal *clichè* della bici appoggiata al portone   
-- la solita strisciata di foto [fotoblog](https://photos.app.goo.gl/ys8AAiCGfMq13ojq5)     
-
-<!---  
+- la solita strisciata di foto [fotoblog](https://photos.app.goo.gl/ys8AAiCGfMq13ojq5)   
 
 **week #50**  
 - del [policlinico](/19wk50-policlinico-lasettimana.md) di Roma che a ben guardare c'ha il suo fascino  
