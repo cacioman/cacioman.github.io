@@ -4,6 +4,13 @@
 
 ![](https://drive.google.com/uc?id=1p6XDP8NiDiDrusTCLLT6lk2uyy6OKst0 "Velletri - Prima i  Veliterni")  
 
+**di fuori** - wk02 2020  
+A una bancarella del mercatino di Natale c'è questa ragazza che vende liquirizia: pescetti, more, girelle ma anche bastoncini, pasticche morbidose e certi blocchi tipo catrame rappreso che indica come *purissima*.  
+Ha un bel sorriso e una vocetta sottile ma acutissima con un vago straniero (per me è dell'est).  
+Parlandoci meglio dice che è di Lariano (manco venti chilometri da casa mia): se parla in dialetto larianese non la capisce nessuno (possibile?) ma invece che se parla in italiano la capiscono tutti ma credono che sia straniera. "E infatti anche io lo pensavo!.." dico "ma non volevo chiederlo per non offendere".  
+Ma offendere chi scusa? e per cosa?  
+Lei mi guarda lo stesso benevola. Io mi metto a comprare mezzo banco.   
+
 **sostituzione etnica**  - gen 2020  
 Si sente spesso di questa cosa che Soros e i Savi di Sion hanno messo in atto tutta una loro raffinatissima strategia per sostituire noi italiani con gli stranieri (specie con quelli neri ché figliano di più): al posto nostro ci saranno i neri e al posto dei nostri valori identitari (tipo il presepe) ci saranno i valori identitari dei neri (tipo il presepe nero). Deve essere sicuramente vero.  
 Ad esempio qui a Frascati negli anni settanta, periodo primavera-estate, si andava in massa a fare la scampagnata al Tuscolo (che è una sorta di collina sacra dei frascatani). Ci si andava aggrumati per famiglie (nonni, zii, cugini, ecc) piazzandosi a non più di venti metri dalle macchine: cesti, tovaglie, sdraio, tielle di pasta, palloni e radiolina su *tutto il calcio minuto per minuto*.   

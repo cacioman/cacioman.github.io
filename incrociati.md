@@ -4,6 +4,15 @@
 
 ![](https://drive.google.com/uc?id=1Vr_e_Evx0e299n4oiWHW049_otOAcBkO "Roma-Fiumicino")  
 
+**colored** - wk02 2020  
+Scendendo verso Cisternole incrocio un ragazzo nero, di quelli centrafricani. Cammina mangiando un *cachì* vaniglia, grosso come un pompelmo. Gli copre mezza faccia. Lui lo addenta di gran gusto e l'arancione del frutto gli contrasta particolarmente bene col marrone scuro della faccia.  
+
+**fuori sede** - wk02 2020    
+Zona Santa Maria Maggiore, mattina presto. Incrocio un ventenne segaligno, cuffiette e sguardo perso del primo risveglio. Quando mi passa accanto pronuncia la seguente frase: "Questa notte mi sono cambiato il pigiama". Era al telefono. Con la madre probabilmente.  
+
+**due cuori una capanna** - wk02 2020    
+Sotto il tabellone di Roma Termini, mi passa accanto veloce una bella ragazza coi capelli rossi, parla al telefono. Dice risoluta: "Mamma povera. Papà povero. Io e te due stronzi". Poi scompare.  
+
 **sciure** - wk46 2019     
 A Milano centro, domenica mattina. Incrociamo una nonna (ben vestita, signorile, tipo moglie di avvocato) a passeggio con la nipotina (una bimbetta deliziosa. la nonna provava a convincerla di lasciare qualcosa (non so cosa) per prenderlo nuovo: "vorrà dire che lo regalerai ai bambini poveri."  
 

@@ -19,7 +19,7 @@
 - di [cantanti confidenziali](20wk04-performers-noteamargine.md), di cantilene arabe e di illusionisti  
 - di foto di un fotoalbum di gente a [testa alta](https://photos.app.goo.gl/q46hKw3pjnXis4ki7) sui tabelloni  
 - di quanto non si deroga ed è [lotta dura](/19wk36-lottadiclasse-interarete.md) senza paura
-- di una nuova ed entusiasmante strisciata di foto del [fotoblog](https://photos.app.goo.gl/ys8AAiCGfMq13ojq5)  
+
 
 **week #03**  
 - una [settimana passata](/20wk03-inincognito-lasettimana.md) sotto traccia
