@@ -1,7 +1,18 @@
 # vedo gente, faccio code  
 ### microstorie inconcludenti, foto fatte male, video insulsi e altre cose così capitate andando in giro     
 
-[![](https://drive.google.com/uc?id=13Hk26DYx11SHeAKnZAso2by849CAlEe2 "Roma Termini - binario 18")](https://photos.app.goo.gl/ys8AAiCGfMq13ojq5) 
+[![](https://drive.google.com/uc?id=1p9wOsSGmPFTZ_JefeymVdwbpSk11h9Ss "Roma, Circo Massimo - queue")](https://photos.app.goo.gl/ys8AAiCGfMq13ojq5) 
+
+**week #05**  
+
+- di [panda giganti](/20wk05-pandi-lasettimana.md) in zona Esquilino  
+- di [situazioni  incontinenti](/20wk05-excusatio-jogno.md) sulla tratta verso i castelli  
+- di foto di [famigliole](https://photos.app.goo.gl/NqaAtzxGAbYZnV997)    
+- di gente che [scende nel sottopasso](https://youtu.be/xizie-wNScc) dalla rampetta del binario 11 (attenzione: è un #VideoInsulso)   
+- di un popolo di tutte le età, di tutte le tasche, che appena può chiama la [mamma](/19wk36-mammoni-interarete.md)  
+- di famigliole con adolescenti [nella norma](/19wk36-nellanorma-interarete.md) che sfottono a tutto spiano  
+- della solita ma sempre nuova strisciata di foto del [fotoblog](https://photos.app.goo.gl/ys8AAiCGfMq13ojq5)  
+
 
 **week #04**  
 - di una buona [settimana](/20wk04-vadolungo-lasettimana.md) per andare lunghi
@@ -17,6 +28,9 @@
 - di lenze e [vecchie volpi](/19wk36-lenze-interarete.md)  
 - di [testate](/20wk03-scapocciati-jogno.md) e di gente che scapoccia
 
+
+<!---  
+
 **week #02**  
 - fotoalbum di [foto di foto](https://photos.app.goo.gl/nLBfCofiNfdtAiWcA) (di foto di foto) 
 - di discorsi da autobus in zona [la Favorita](/20wk02-prospettive-lasettimana.md) direzione Tommaso Natale (PA)  
@@ -24,9 +38,6 @@
 - di colori abbinati, di [cambi di stagione](/20wk02-ragazzi-noteamargine.md) e di coperture economiche    
 - di quanto anche le [gnappette](/19wk36-gnappetta-interarete.md) nel loro piccolo si incazzano   
 - di calze, befane, [ragazze carine](/20wk02-befana-italexit.md) e blocchi di liquirizia   
-  
-
-<!---  
 
 **week #51-#52-#01**  
 - di scabrose situazioni nell'alta [ciociaria](/19wk36-ciociara-interarete.md)  
