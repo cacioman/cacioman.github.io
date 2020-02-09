@@ -3,6 +3,22 @@
 
 ![](https://drive.google.com/uc?id=1wTMlNxkhXRGTARSCyNEh5LC7V1Dueosn "Roma - MetroB, Ponte Mammolo")  
 
+**relatività ristretta** - wk03 2020    
+Alla fermata compare un vecchietto rinseccolito che si trascina con due bastoni. Già solo per raggiungere la palina ci mette un'eternità.  
+Arriva il 769, gli apre le porte quasi in faccia e il vecchietto scompare nell'ondata delle persone in discesa. In qualche modo resiste, sale su e si abbarbica al primo palo che trova.   
+La fermata successiva è deserta (e nessuno la prenota) così il 769 passa oltre. Come se ne accorge, il vecchietto attacca a smadonnandore ad alta voce: echecazzo lui è lì che doveva scendere!  
+Imbarazzato generale, autista muto, ma si prosegue lo stesso. Dopo pochi metri siamo già alla fermata successiva (che in effetti sono tutte vicinissime).  Quando le porte si riaprono, il vecchietto scende. "Mo me ce porti tu indietro!.." dice il vecchietto aggiungendo ancora tanti cari saluti all'autista e a tutti li mortacci sua.   
+
+**scapocciati**  - wk03 2020  
+"Mi permetti di chiederti perdono?! MI PERMETTI DI CHIEDERTI PERDONO?!" urla alteratissimo un tizio sulla trentina vestito strano (sciarpa e cappottino avana). Sta a due centimetri dal ragazzo a cui ha appena rotto il labbro con una testata: è stata la sua assurda reazione per essere stato pizzicato dal ragazzo a fargli un video.  
+E' stato anche fortunato: due signori hanno prontamente bloccano la reazione del ragazzo che è un tipo atletico, coi capelli doppio (e si sa "quelli col doppio taglio menano"). Il ragazzo desiste subito: deve capito subito di avere a che fare con un pazzoide (quelli col doppio taglio capiscono al volo le situazioni *de menare* e non si sporcano mica le mani). Ora si tampona il sangue con un fazzoletto e, sempre tenendo il pazzoide sott'occhio, telefona stizzito a qualcuno: chiama le *guardie*.  
+"Adesso scendiamo e vieni con me" dice. 
+"E che che sto scappando?! DIMMI SOLO SE STO SCAPPANDO?!" gli risponde il pazzoide. 
+"Sì vabbe' ma adesso vieni con me"  
+"Ti sembra che sto scappando?! TI SEMBRA CHE STO SCAPPANDO?!"  
+Continuano così nel silenzio imbarazzato del vagone.  
+Colgo l'occasione per ripromettermi di non fare più foto in Metro, almeno per un po': il prossimo pazzoide col cappottino potrei essere io.   
+
 **sette sei sei, sette sei nove** - wk41 2019  
 San Paolo. Pensilina della fermata su via Giustiniano Imperatore, sotto il ponte della Metro B. Qui passano il 670 (un autobus, popolato di soggetti strani, che si aggroviglia in un giro demenziale tra Garbatella e Colombo), il 128 (che qui fa l'ultima fermata e se per sbaglio lo prendi, fa conversione ad U e ti porta verso la Magliana) e poi i due 766 e 769 (che per me sono equivalenti e me li confondo sempre tra loro).  
 Mentre aspetto, arriva una signora alta e un po' agitata, chiede se è passato il 769. Io svago. Lei però lo chiede ad un ragazzo con le cuffiette e insiste per svegliarlo dal suo torpore musicale. Quello, preso di soprassalto, non sa non ricorda. Le risponde allora un'altra signora seduta sulla panchetta della pensilina, una con gli occhiali a specchio e una canuccia anziana con l'espressione sveglisa. E' un cane guida per ciechi e in effetti anche la signora lo è. Questo non le impedisce di dire con sicurezza che è passato solo il 766 e che anche lei aspetta il 769 ma che l'*app* le dice che ci vogliono ancora cinque minuti. "Meno male!.." dice l'altona "ormai ho capito che 'sto periodo il 769 arriva alle nove e venticinque massimo nove e trenta, ormai l'ho capito, 'sto periodo". L'*app* non deve convincerla molto e rimane di vedetta.  
@@ -27,6 +43,10 @@ Lo faccio prontamente, ostentando efficienza e controllo ma appena posso mi ritu
 Metro B, a Termini insieme a me salgono una signora sui trentacinque (riccissima, tondetta, scura di pelle, diciamo tipo delle Antille), la suocera italiana (una comare di paese ma buona, diciamo tipo di Ceprano) e la figlia (una bambina sui tre-quattro, riccetta, molto diligente e carina). Se ne stanno tranquille.  
 Poco dopo un ragazzo sui venticinque (riccio anche lui, anche lui scuro di pelle) guardando la ragazzina si risveglia come dal suo torpore mattutino e chiede alla mamma di dove sono. Lei dice di essere brasiliana, del *norte* (tipo Fortaleze). Ah ecco vedi: lui sarebbe originario delle delle Isole Vergini o di Capo Verde non ricordo (per me per come parla e più di San Basilio - Ponte Mammolo).  
 Dice che anche lui ha una figlia uguale uguale, con gli stessi riccetti e quindi tutto torna: so' degli stessi posti. La madre gli sorride, la suocera invece trattiene un po' la ragazzina anche perchè al ragazzo nel frattempo gli prende un velo di malinconia che non si capisce se è perchè ha lasciato la sua di figlia riccetta piangente all'asilo, o perchè c'ha una sua situazione incasinata con la madre della figlia o più semplicemente perchè quest'anno 'sta Roma con la *Champions* mi sa che non se ne parla proprio.  
+
+**sorcio egizio** - wk10 2019  
+Piramide. Vedo un topastro che gironzola furtivo tra i catus polverosi e gli oleandri sfiatati dell'aiola. Non è poi neanche così furtivo: fa solo il suo giro abituale e c'ha la stessa *verve* che ci stiamo mettendo noi qui in attesa della Metro, direzione Rebibbia-Jonio.  
+Preferisco 'sto topo ai gabbiani, goffi e boriosi, o alle cornacchie. Quelle se le sorprendi a bucare un sacchetto delle immondizie (o a fare altre prodezze del genere), ti fissano di traverso col loro l'occhio preistorico, mezzo dinosauro e mezzo HAL900, e subito ti classificano per quello che sei: maschio gamma (al più beta) di una razza imbelle. Il topo invece ti rispetta, magari ti considera pure e appena può riprende la via di casa (e pure noi).  
 
 **affinità elettive**  - wk26 2018  
 In Metro un fattone sulla trentina, a vagone quasi vuoto, mi si mette e dieci centimetri dalla mia faccia solo per chiedermi se ho spicci. Dice che gli servono per prendere gli psicofarmaci. Io di spicci non ne ho e quindi non gliene do ma in effetti non so mai cosa fare in questi casi.   
@@ -59,6 +79,3 @@ All'improvviso una voce ci ha gelati: "Controllo biglietti". Poi una risata sgua
 
 ---  
 [home](/index.md) - [about me](/aboutme.md)   
-<!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIxMzc1MjYwMTVdfQ==
--->
