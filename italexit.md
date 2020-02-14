@@ -2,8 +2,6 @@
 
 ### intorno a noi, mano a mano che succede  
 
-![](https://drive.google.com/uc?id=1p6XDP8NiDiDrusTCLLT6lk2uyy6OKst0 "Velletri - Prima i  Veliterni")  
-
 **di fuori** - wk02 2020  
 A una bancarella del mercatino di Natale c'è questa ragazza che vende liquirizia: pescetti, more, girelle ma anche bastoncini, pasticche morbidose e certi blocchi tipo catrame rappreso che indica come *purissima*.  
 Ha un bel sorriso e una vocetta sottile ma acutissima con un vago straniero (per me è dell'est).  
