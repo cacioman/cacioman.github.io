@@ -2,8 +2,6 @@
 
 ### mezze frasi, magiche apparizioni, foto mancate e intruppamenti vari  
 
-![](https://drive.google.com/uc?id=1Vr_e_Evx0e299n4oiWHW049_otOAcBkO "Roma-Fiumicino")  
-
 **colored** - wk02 2020  
 Scendendo verso Cisternole incrocio un ragazzo nero, di quelli centrafricani. Cammina mangiando un *cachì* vaniglia, grosso come un pompelmo. Gli copre mezza faccia. Lui lo addenta di gran gusto e l'arancione del frutto gli contrasta particolarmente bene col marrone scuro della faccia.  
 
