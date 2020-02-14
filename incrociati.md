@@ -1,6 +1,14 @@
 # note a margine  
-
 ### mezze frasi, magiche apparizioni, foto mancate e intruppamenti vari  
+
+**noio** - #wk04 2020    
+In Metro passa un tizio secco-secco che di solito canta (tipo *crooner*, diciamo). Questa volta invece chiede direttamente qualcosa senza cantare. Cerco in borsa ma trovo solo una moneta da due euro (vorrei dargli di meno) quello però mi si mette davanti ad aspettare e alla fine gli do i due euro. Si scatena l'entusiasmo "grazie! grazie! grazie!". Dico: "lei canta vero?". "Sì" e prende a giustificarsi usando in seconda persona "sì cantiamo ma questa settimana no. Lo facciamo per arrivare al 27: abbiamo il reddito di cittadinanza".  
+
+**megafona** - #wk04 2020    
+In treno, in mezzo a un pianerottolo affilatissimo, c'è una signora mussulmana abbastanza alta (un donnone) col suo fazzoletto ben chiuso intorno al viso. Deve essere un tipo pratico: si tiene a due mani sugli appositi sostegni e parla al telefono tenendolo incollato al viso col fazzolettone (un po' come fanno quelli con lo scuterone che lo reggono tra casco e scucchia). Straparla in arabo sovrastando tutti quelli che le stanno intorno (decisamente pazienti).   
+
+**vedo** - #wk04 2020    
+Treno in partenza. Nella fila accanto alla mia c'è un ragazzo immerso nella lettura di un libro. Il treno mano mano si riempie e molti chiedono al ragazzo se sia libero il posto accanto a suo. Lui con calma studiata si riprende dalla lettura e dice che sì il posto sarebbe libero ma come vede è un po' sporco, se proprio vuole... tutti rinunciano. E' i sedile vicino al finestrino e lui mi copre la visuale: non riesco a vedere che sporco sia. Per come reagiscono tutti arrivo a immaginare panini smozzicati, patatine fritte con sversamento di check-up, liquami vari... All'ultimo, quasi in partenza, arriva un grezzone, chiede che c'ha quel posto e il ragazzo gli recita candido la solita storia. Il grezzone dice che non c'è problema e con un colpo secco butta via tuutto quello sporco. Era solo un po' di carta appallottolata.   
 
 **colored** - wk02 2020  
 Scendendo verso Cisternole incrocio un ragazzo nero, di quelli centrafricani. Cammina mangiando un *cachì* vaniglia, grosso come un pompelmo. Gli copre mezza faccia. Lui lo addenta di gran gusto e l'arancione del frutto gli contrasta particolarmente bene col marrone scuro della faccia.  
@@ -27,7 +35,7 @@ Termini, uscita su via Giolitti. Una ragazza sui trenta (alta, magra, simpatica)
 Termini, uscita su via Giolitti. Dal flusso informe esce una famigliola tipo Europa dell'est (biondini, vestiti scialbi, padre segaligno, madre piccoletta, figlio eguale a tutti e due). I tre si guardano intorno attoniti, forse anche un po' schifati. Dalle labbra di tutti e tre pende una sigaretta spenta, da poco infilata in bocca per essere accesa ed ondeggiante in verticale sul mento. La tengono tutti allo stesso modo. E io, come uno scemo, mi manca il tempo per fotografarli.  
 
 **business man** - wk45 2019  
-Termini, uscita su via Giolitti. In mezzo al solito via-vai, due neri sulla trentina se stanno seduti da un quarto d'ora sui cilindri anti-intrusione dell'ingresso. Ogni tanto la guardia giurata passa per dire di alzarsi, che quelli non reggono, lo fa con tutti con scarso effetto e alla fine rinuncia.  i due neri manco se ne accorgono, parlano interrottamente. Dopo un altro bel po' arriva un amico loro, forse è quello con cui hanno appuntamento. Lunghi saluti, poi ancora chiacchiere, poi finalmente il nuovo arrivato da una bustaccia bianca tira fuori tre-quattro paia di Converse bianche. Sono scarpe nuove, immacolate e gigantesche (forse numero 48). I  due se le rigirano in tutti i modi, le soppesano, fanno le espressioni poco convinte infine le rimettono dentro.  
+Termini, uscita su via Giolitti. In mezzo al solito via-vai, due neri sulla trentina se stanno seduti da un quarto d'ora sui cilindri anti-intrusione dell'ingresso. Ogni tanto la guardia giurata passa per dire di alzarsi, che quelli non reggono, lo fa con tutti con scarso effetto e alla fine rinuncia.  i due neri manco se ne accorgono, parlano ininterrottamente. Dopo un altro bel po' arriva un amico loro, forse è quello con cui hanno appuntamento. Lunghi saluti, poi ancora chiacchiere, poi finalmente il nuovo arrivato da una bustaccia bianca tira fuori tre-quattro paia di Converse bianche. Sono scarpe nuove, immacolate e gigantesche (forse numero 48). I  due se le rigirano in tutti i modi, le soppesano, fanno le espressioni poco convinte infine le rimettono dentro.  
 E così è passato un altro quarto d'ora.  
 
 **succhi** - wk43 2019  
@@ -75,13 +83,13 @@ Alla stazione di Muratella salgono una decina di ragazzi sbucati dallo stradone 
 In un cortile di Garbatella, molto silenzioso, due ragazzini si rincorrono scattando all'improvviso dalle loro posizioni dove evidentemente sono "salvi". Appena partono, sbuca anche un gatto bianco che salta come impazzito e schizza nella direzione contraria.  
 
 **clack** - wk12 2019   
-Una ragazza si ferma girandosi indietro in mezzo alla folla appena scesa dal mio treno tutta incolonnata sul binario 18. Punta una macchinetta fotografica su quelli che le vengono incontro, tra cui il sotto scritto, e scatta. CLACK. Ben fatto!  
+Una ragazza si ferma girandosi indietro in mezzo alla folla appena scesa dal mio treno tutta incolonnata sul binario 18. Punta una macchinetta fotografica su quelli che le vengono incontro, tra cui il sottoscritto, e scatta. CLACK. Ben fatto!  
 
 **scacchieri internazionali**  - wk12 2019   
 In Metro un signore e una signora discutono di vacanze. Entrambi sui cinquanta, abbastanza incolori, sicuramente due colleghi. Lei dice perentoria che no nei paesi islamici lei non ci passa mica: "Egitto, Israele, mai!" Lui conferma.       
 
 **evidenze** - wk12 2019   
-Il tizio del SUV, che ha appena parcheggiato per sbiego sulle strisce pedonali, controbatte indicando con soddisfazione quel portento della meccanica: "eh ho capito ma mica posso mettermelo in tasca!..".   
+Il tizio del SUV, che ha appena parcheggiato per sbieco sulle strisce pedonali, controbatte indicando con soddisfazione quel portento della meccanica: "eh ho capito ma mica posso mettermelo in tasca!..".   
 
 **Inferno** - wk11 2019  
 Dice che gli va così-così: in ufficio il capo s'è portato i figli a lavorare da loro e 'sti figli sarebbero pure dei bravi ragazzi se non fosse che sono i figli del primo matrimonio e invece il capo li ha messi a lavorare sotto la seconda moglie. Figurati i casini!..
@@ -99,7 +107,7 @@ Sotto l'arco di Costantino, una ragazzina tedesca sui quattro-cinque anni che sa
 Quando la mattina scendiamo a Termini è sempre al lontanissimo binario 18. Mentre con gli altri pendolari ci accalchiamo e intruppiamo, c'è sempre 'sto fregno sceso con noi che attraversa i binari e va sulla banchina del 15 dove non c'è mai nessuno. Lì inforca il suo monopattino elettrico e con moto rettilineo uniforme ci supera tutti, posa plastica e capello al vento (ostenta anche un fastidioso sorrisetto beffardo ma questo forse me lo immagino solo io).  
 
 **velate** - wk07 2019   
-Nel bus stracolmo entra una signora mussulmana velata, sul cicciottello. Rimane bloccata mezza schiacciata sui portelloni. Ha gli occhi molto vivi e fa tutta una serie di smorfie divertenti. Capisco solo dopo che fanno parte di un colloquio con qualcun altro nel bus. Ci metto un po' e finalmente quest'altro: è un'altra signora, anche lei velata, anche lei cicciotella.  
+Nel bus stracolmo entra una signora musulmana velata, sul cicciottello. Rimane bloccata mezza schiacciata sui portelloni. Ha gli occhi molto vivi e fa tutta una serie di smorfie divertenti. Capisco solo dopo che fanno parte di un colloquio con qualcun altro nel bus. Ci metto un po' e finalmente quest'altro: è un'altra signora, anche lei velata, anche lei cicciottella.  
 
 **focus** - wk04 2019    
 In Metro B vedo una signora molto anziana, tutta concentrata a leggere una articolo intitolato "Il killer degli anziani" e lo fa riga per riga, con l'indice.
@@ -197,7 +205,7 @@ Mi segnalano che dagli altoparlanti della linea Roma-Viterbo, del tutto inaspett
 
 
 **vecchio trombone**  - wk45 2017  
-L'uscita della Metro B che dà direttamente su piazza dei Cinquecento è un varco puzzolente e mal frequentato. Uscendo ci trovo tre adolescenti magrebini, secchi secchi, con addosso delle magliettacce di calcio. Se la ridono di gusto perchè uno di loro scende contromano le scale mobili con dei gran balzelloni plateali. In effetti è divertente. Io però evito di dargli soddisfazione.  
+L'uscita della Metro B che dà direttamente su piazza dei Cinquecento è un varco puzzolente e mal frequentato. Uscendo ci trovo tre adolescenti magrebini, secchi secchi, con addosso delle magliettacce di calcio. Se la ridono di gusto perché uno di loro scende contromano le scale mobili con dei gran balzelloni plateali. In effetti è divertente. Io però evito di dargli soddisfazione.  
 
 **guerra di posizione**  - wk45 2017  
 Sul treno c'è una bambinetta che saltella nel corridoio tra scalini, borse e inciampi vari. Il treno dà i suoi soliti scossoni. La madre già esaurita di suo, le dice: "Se poi ti fai male io non ne voglio sapere niente". La figlia ostenta una studiata indifferenza ma manco due secondi dopo sta lì che rischia di prendere uno spigolo. La madre ha un ghigno di soddisfazione. Io je bucherebbe il pallone a tutte e due.  
@@ -217,4 +225,4 @@ Sul treno che arriva da Ponte Galeria c'è una coppia di cinquantenni. Sembrano 
 Gli androni e i portierati dei palazzi che si credono un po' *'sto cazzo* e che mi mettono sempre un po' di soggezione a passarci davanti.  
 
 ---  
-[home](/index.md) - [about me](/aboutme.md)   
+[home](/index.md) - [about me](/aboutme.md)  
