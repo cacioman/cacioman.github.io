@@ -1,8 +1,6 @@
 # jogno  
 ### ancora roba abbastanza undergroug  
 
-![](https://drive.google.com/uc?id=1wTMlNxkhXRGTARSCyNEh5LC7V1Dueosn "Roma - MetroB, Ponte Mammolo")  
-
 **relatività ristretta** - wk03 2020    
 Alla fermata compare un vecchietto rinseccolito che si trascina con due bastoni. Già solo per raggiungere la palina ci mette un'eternità.  
 Arriva il 769, gli apre le porte quasi in faccia e il vecchietto scompare nell'ondata delle persone in discesa. In qualche modo resiste, sale su e si abbarbica al primo palo che trova.   
