@@ -1,4 +1,4 @@
-https://www.flickr.com/gp/cacioman/8DxY02# vedo gente, faccio code  
+# vedo gente, faccio code  
 ### microstorie inconcludenti, foto fatte male, video insulsi e altre cose così capitate andando in giro     
 
 [![](https://drive.google.com/uc?id=1AYiPvS4C3ZlZQZcCKUQ10r9w2mjaC3Ax "Ciampino - calca mattutina")](https://photos.app.goo.gl/ys8AAiCGfMq13ojq5) 
