@@ -26,6 +26,6 @@
 - di famigliole con adolescenti [nella norma](/19wk36-nellanorma-interarete.md) che sfottono a tutto spiano  
   
 ---  
-[**fotoblog**](https://photos.app.goo.gl/ys8AAiCGfMq13ojq5) - [p.a.p.z](/papz.md) - [ital exit](/italexit.md) - [note a margine](/incrociati.md) - [la settimana](/lasettimana.md) - [**intera rete**](/interarete.md) - [jogno](/jogno.md) - [video](https://www.youtube.com/channel/UCDoy-lXaaJVugJ9bLVSXGJw?view_as=subscriber) - [a.d.l.g.](https://www.youtube.com/channel/UC8B2bq3VdPtSeLzryWwNAlQ) - [shared post](https://t.me/cacioshared) - [about me](/aboutme.md)  
+[**fotoblog**](https://photos.app.goo.gl/DhWNbTDrradvg3cn6) - [p.a.p.z](/papz.md) - [ital exit](/italexit.md) - [note a margine](/incrociati.md) - [la settimana](/lasettimana.md) - [**intera rete**](/interarete.md) - [jogno](/jogno.md) - [video](https://www.youtube.com/channel/UCDoy-lXaaJVugJ9bLVSXGJw?view_as=subscriber) - [a.d.l.g.](https://www.youtube.com/channel/UC8B2bq3VdPtSeLzryWwNAlQ) - [shared post](https://t.me/cacioshared) - [about me](/aboutme.md)  
 
 
