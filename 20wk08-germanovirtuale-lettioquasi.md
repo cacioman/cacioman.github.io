@@ -7,8 +7,8 @@ Teatro Argot Studio
 domenica 16 febbraio - ultima replica - 15 euro più 5 di tessera  
 
 La sigla "VR" del titolo sta per Virtual Reality. Quando ci fanno accomodare in sala ce lo spiegano meglio. Praticamente non vedi uno spettacolo con attori in carne ed ossa ma il video di un spettacolo di Elio Germano registrato, quello sì, in un teatro vero. Qui è solo *virtual*. La cosa fica sarebbe che te lo proiettano sullo schermetto di uno smartphone. Devi solo indossare per un'oretta delle cuffie e una specie di maschera da sub (senza boccaglio). Tempo dieci minuti che stai così, a guardare in alto con 'sto coso legato sul capocicone, e arriva la cervicale (quella *real* però).   
-Lo spettacolo vero e proprio è un monologo sul provocatorio (anche se un po’ scontato) sulla questione della massificazione, della pericolo autoritario e della retorica sovranista. Tutte cose vere e giuste che magari vedendolo dal vivo faceva pure effetto ma qui (tutti intruppati con con 'sto coso ridicolo sulla faccia) ti sa un po' di esperimento sociale sociale: una cosa tipo vedere quanto resisti a subire prima di incazzarti.   
-Abbiamo resistito quasi tutti. Elio ne sarà contentissimo.
+Lo spettacolo vero e proprio è un monologo sul provocatorio (anche se un po’ scontato) sulla questione della massificazione, del pericolo autoritario e della retorica sovranista. Tutte cose vere e giuste e magari vedendo lo spettacolo dal vivo ti faceva pure effetto ma qui (tutti intruppati con con 'sto coso ridicolo sulla faccia) ti sa più di esperimento sociale: una cosa tipo vedere quanto resisti a subire prima di incazzarti.   
+Abbiamo resistito quasi tutti. Elio ne sarà contentissimo.  
  
 ---  
 [home](/index.md) - [about me](/aboutme.md)  
