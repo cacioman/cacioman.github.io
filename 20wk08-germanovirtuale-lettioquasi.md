@@ -1,4 +1,4 @@
-# VR sola
+# germano virtuale  
 ### della serie "letti (o quasi)" - wk08 2020
 
 ![](https://live.staticflickr.com/65535/49544633953_7fe5307aed_k.jpg "Virtual Reality")
