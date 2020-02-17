@@ -7,8 +7,8 @@ Teatro Argot Studio
 con Elio Germano - domenica 16 febbraio - ultima replica  
 15 euro più 5 di tessera  
 
-La sigla "VR" del titolo sta per Virtual Reality. Quando ci fanno accomodare in sala ce lo spiegano meglio. Praticamente non vedi uno spettacolo con attori in carne ed ossa ma il video di un spettacolo di Elio Germano registrato, quello sì, in un teatro vero. Qui è solo *virtual*. La cosa fica sarebbe che te lo proiettano sullo schermetto di uno smartphone. Devi solo indossare per un'oretta delle cuffie e una specie di maschera da sub (senza boccaglio). Tempo dieci minuti che stai così, a guardare in alto con 'sto coso legato sul capocicone, e arriva la cervicale (quella *real*).   
-Lo spettacolo vero e proprio è un monologo sul provocatorio (anche se un po’ scontato) sulla questione della massificazione, del pericolo autoritario e della retorica sovranista. Tutte cose vere che magari a vedere lo spettacolo dal vivo ti faceva pure effetto ma qui (tutti intruppati con con 'sto coso ridicolo sulla faccia) ti sa più di esperimento sociale: una cosa tipo vedere quanto resisti a subire prima di incazzarti.   
+VR del titolo sta per Virtual Reality e ci si mette un po’ per capire cosa vuol dire. Praticamente ti fanno vedere il video di uno spettacolo di Elio Germano proiettandotelo sullo schermo di uno smartphone montato in una specie di maschera da sub (senza boccaglio). La devi indossare conle cuffie per un’ora e dieci: un’eternità. Lo schermo infatti si appanna spesso e poi a forza di muoverti nel fantastico mondo della *virtual reality* finisce che ti viene pure il torcicollo (ma quello reale).  
+Lo spettacolo vero e proprio è un monologo sul provocatorio (anche se un po’ scontato) sulla questione della massificazione, del pericolo autoritario e della retorica sovranista. Tutte cose vere che magari a vedere lo spettacolo dal vivo ti faceva pure effetto ma qui (tutti intruppati con con 'sto coso ridicolo sulla faccia) ti sa più di esperimento sociale: una cosa tipo studiare quanto resisti a subire prima di incazzarti.   
 Abbiamo resistito quasi tutti. Elio ne sarà contentissimo.  
  
 ---  
