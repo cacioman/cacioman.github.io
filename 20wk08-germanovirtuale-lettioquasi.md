@@ -2,8 +2,7 @@
 ### della serie "letti (o quasi)" - wk08 2020
 
 ![](https://live.staticflickr.com/65535/49544633953_7fe5307aed_k.jpg "Virtual Reality")
-Teatro Argot Studio 
-[Segnale d’allarme](https://www.teatroargotstudio.com/segnale-dallarme-la-mia-battaglia-vr/) - La mia battaglia VR 
+Teatro Argot Studio - [Segnale d’allarme](https://www.teatroargotstudio.com/segnale-dallarme-la-mia-battaglia-vr/) - La mia battaglia VR 
 con Elio Germano - domenica 16 febbraio - ultima replica 
 
 VR del titolo sta per Virtual Reality e ci si mette un po’ per capire cosa vuol dire. Praticamente ti fanno vedere il video di uno spettacolo di Elio Germano proiettandotelo sullo schermo di uno smartphone montato in una specie di maschera da sub (senza boccaglio). La devi indossare per un’ora e dieci: un’eternità. Lo schermo infatti si appanna spesso e poi a forza di muoverti nel fantastico mondo della virtual reality finisce che ti viene pure il torcicollo (quello reale non quello virtuale).  
