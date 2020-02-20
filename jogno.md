@@ -1,6 +1,12 @@
 # jogno  
 ### ancora roba abbastanza undergroug  
 
+# excusatio non petita  
+### della serie "jogno" - wk11 2018  
+
+![](https://drive.google.com/uc?id=19uzNHofqRRBzbu-ERLJKqf3haHhrd04r "Roma, Equilino- domus aurea")  
+
+
 **relatività ristretta** - wk03 2020    
 Alla fermata compare un vecchietto rinseccolito che si trascina con due bastoni. Già solo per raggiungere la palina ci mette un'eternità.  
 Arriva il 769, gli apre le porte quasi in faccia e il vecchietto scompare nell'ondata delle persone in discesa. In qualche modo resiste, sale su e si abbarbica al primo palo che trova.   
@@ -58,6 +64,11 @@ Io intanto cerco lo sguardo della mezza zingara per comunicarle discretamente �
 A Subaugusta il terzetto si alza per uscire. Prima la signora, poi la ragazza, poi il vecchio traballante che per una frenata inciampa e va quasi lungo. La ragazza lo trattiene poco convinta, la signora se ne disinteressa, la mezza zingara si alza con una certa platealità per salvarlo (ma in effetti quello se la cava da solo e non serve).  
 Uscito il terzetto è la mezza zingara a cercare il mio sguardo. In un italiano impossibile, mi attacca un pippone sui valori della famiglia, che lei quando ha chiesto l’ora non voleva mica sapere l’ora, che lo faceva per attaccare bottone, che lei l’orologio ce l’ha (e me lo fa vedere), che la signora stava piangendo (ma che non mi era accorto manco di questo?!) ma che lo stesso il dovere di una figlia è quello di tenere per braccio il padre (questo concetto me ripete mimandolo un paio di volte, sulle prime pensavo facesse il gesto dell'ombrello...), che prima c’è Dio, poi il dottore (vorrà dire "la salute"), poi i figli e che i figli sono come le dita di una mano: cinque uguali ma cinque diversi. Sta divagando ma fa breccia.        
 Scende alla fermata successiva con ancora un piglio indignato. Io rimango su un vagone vuoto diretto a capolinea, tipo inutile mignolo.  
+
+**excusatio non petita**  - wk11 2018  
+Bus COTRAL che va verso i Castelli. Una signora dell'est mi incastra tra lei e il finestrino ma con questo freddo il contatto umano col suo corpicione è gradito.  Lei intanto sta incollata su Facebook a guardasi una squadra femminile di ginnastica attrezzistica dell'est di una qualche Olimpiade del passato: ragazzine dai corpi efebici e gli occhi determinati, allenatori buzziconi, schiena di gomma , movimenti meccanici a molla. Il filmato è lunghissimo ma io ancora non mi scaldo.  
+La signora scende a Vermicino, Al suo posto arriva una ragazzina italiana, anche lei si curva su un social ma ora smetto di impicciarmi.  
+Quando arriva la mia fermata, e mi alzo per uscire, scopro il perché di quel freddo: stavo seduto su un sedile mezzo bagnato (e ho pure i pantaloni tutti appiccicaticci). Blocco la ragazzina, che con un guizzo starebbe per spostarsi proprio al mio posto. Attenzione, le dico, non mi ero accorto ma il sedile è bagnato. Lei verifica con la mano e mi ringrazia. Poi per fare lo spiritoso dico sornione "non sono mica stato io". Lei si impietrisce e mi sorride imbarazzata (l'eventualità di una mia incontinenza non le sembra impossibile). Guadagno goffamente l'uscita.  
 
 **grandi ricerche** - w47 2017  
 Mattina, treno dell'andata. Una signora sudamericana (diciamo peruviana) è sconsolatissisma per via che non trova il suo cellulare. Chiamiamo il suo numero col mio telefono ma niente. Forse è rimasto al lavoro, forse *Christia* sa dov'è. Chiamiamo al lavoro, dicono di aspettare, intanto lei ragiona ad alta voce: "Sì *Christia* c'è, oggi è di turno, ma non è che lo ha trovato Marta? Ah no, oggi Marta doveva de uscire prima..." Trovano *Christia*, mo va a vedere nello spogliatoio (deve essere un ospedale: anche se non lo sento parlare, *Christia* traspira quella flemma lì). Quando scendo alla mia fermata dico alla signora "mi faccia sapere" (la solita curiosità inutile). Lei invece mi prende sul serio e nel primo pomeriggio manda un messaggio: dice che tutto ok, il telefono lo aveva già trovato Marta, ringrazia tantissimo.  
