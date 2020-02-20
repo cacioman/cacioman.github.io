@@ -1,6 +1,13 @@
 # la settimana  
 ### consuntivo settimanale  
 
+
+**pandi** - wk05 2020  
+Mattina presto. Passo da piazza Vittorio all'angolo dove di solito c'erano delle signore cinesi a fare *tai chi chuan* (tantissime, molto coreografiche con le loro belle tutine rosse e bianche). Ora, proprio dove stavano loro, ci stanno facendo dei lavori (che sembrano eterni) e non le vedo più. Magari si sono solo trasferite dall'altra parte della piazza.  
+E' un po' anche che non vedo quelle signore cinesi sui quaranta che camminano a passi veloci. Curatissime vanno quasi sempre in coppie parlando freneticamente tra di loro. Hanno un che di pragmatico: io penso sempre che siano delle manager di qualche ristorante nei dintorni.  
+Dei soliti che vedo qui, ho incrociato solo un papà (un a specie di pandone) mano per la mano col figlio (un pandino abbastanza trotterellante). Vanno verso scuola. Sento che il pandino con voce quillante dice al pandone "Papà" e fa seguire un lungo discorso ma in cinese. Non credo parlassero di coronavirus.  
+E' stata una settimana così: di sospensione e sospetto.   
+
 **vado lungo** - wk04 2020  
 A Muratella il treno non si ferma e va lungo. Vediamo la nostra stazioncina che scorre via veloce, gli sguardi sorpresi di quelli che dovevano salire, molti di noi che si agitano (io ad esempio), altri che si incazzano o si avviliscono. Dopo pochi chilometri il treno arriva a Ponte Galeria, questa volta ferma. Per pochissimo ma riescono a farci perdere anche il treno gemello che viene nell'altra direzione e che ci avrebbe riportato subito indietro.  Indignati ed incazzati andiamo a prendercela col macchinista. Quello ci aspetta affacciato dal finestrino. Si vede per contrasto solo la capoccia tonda che esce da un quadrato in alto alla motrice. Lui la tiene china con le mani a coprire gli occhi in un gesto di vergogna bambinesco e un po'  scherzoso. Funziona. Quell'inattesa auto-ironia ci smonta a tutti: mugugniamo qualcosa e subito ce ne andiamo ad aspettare il treno dopo.  
 E' stata una settimana così: sincera e un po' paracula.
