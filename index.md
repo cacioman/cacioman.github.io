@@ -1,7 +1,7 @@
 # vedo gente, faccio code  
 ### microstorie inconcludenti, foto fatte male, video insulsi e altre cose così capitate andando in giro     
 
-[![](https://drive.google.com/uc?id=1AYiPvS4C3ZlZQZcCKUQ10r9w2mjaC3Ax "Ciampino - calca mattutina")](https://photos.app.goo.gl/ys8AAiCGfMq13ojq5) 
+[![](https://drive.google.com/uc?id=1AYiPvS4C3ZlZQZcCKUQ10r9w2mjaC3Ax "Ciampino - calca mattutina")](https://www.flickr.com/photos/cacioman/) 
 
 **week #07**  
 - [ragazzi perfetti](/19wk36-soddisfazioni-interarete.md) e di altri (meno ragazzi e meno perfetti)  
@@ -26,4 +26,4 @@
 - di famigliole con adolescenti [nella norma](/19wk36-nellanorma-interarete.md) che sfottono a tutto spiano  
   
 ---  
-[**fotoblog**](https://photos.app.goo.gl/DhWNbTDrradvg3cn6) - [p.a.p.z](/papz.md) - [ital exit](/italexit.md) - [note a margine](/incrociati.md) - [la settimana](/lasettimana.md) - [**intera rete**](/interarete.md) - [jogno](/jogno.md) - [video](https://www.youtube.com/channel/UCDoy-lXaaJVugJ9bLVSXGJw?view_as=subscriber) - [a.d.l.g.](https://www.youtube.com/channel/UC8B2bq3VdPtSeLzryWwNAlQ) - [shared post](https://t.me/cacioshared) - [about me](/aboutme.md)  
+[**fotoblog**](https://www.flickr.com/photos/cacioman/) - [p.a.p.z](/papz.md) - [ital exit](/italexit.md) - [note a margine](/incrociati.md) - [la settimana](/lasettimana.md) - [**intera rete**](/interarete.md) - [jogno](/jogno.md) - [video](https://www.youtube.com/channel/UCDoy-lXaaJVugJ9bLVSXGJw?view_as=subscriber) - [a.d.l.g.](https://www.youtube.com/channel/UC8B2bq3VdPtSeLzryWwNAlQ) - [shared post](https://t.me/cacioshared) - [about me](/aboutme.md)  
