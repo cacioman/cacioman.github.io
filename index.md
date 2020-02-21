@@ -24,6 +24,6 @@
 - di gente che [scende nel sottopasso](https://youtu.be/xizie-wNScc) dalla rampetta del binario 11 (attenzione: è un #VideoInsulso)   
 - di un popolo di tutte le età, di tutte le tasche, che appena può chiama la [mamma](/19wk36-mammoni-interarete.md)  
 - di famigliole con adolescenti [nella norma](/19wk36-nellanorma-interarete.md) che sfottono a tutto spiano  
-  
+   
 ---  
-[**fotoblog**](https://www.flickr.com/photos/cacioman/) - [p.a.p.z](/papz.md) - [ital exit](/italexit.md) - [note a margine](/incrociati.md) - [la settimana](/lasettimana.md) - [**intera rete**](/interarete.md) - [jogno](/jogno.md) - [video](https://www.youtube.com/channel/UCDoy-lXaaJVugJ9bLVSXGJw?view_as=subscriber) - [a.d.l.g.](https://www.youtube.com/channel/UC8B2bq3VdPtSeLzryWwNAlQ) - [shared post](https://t.me/cacioshared) - [about me](/aboutme.md)  
+[**fotoblog**](https://www.flickr.com/photos/cacioman) - [p.a.p.z](https://cacioman.github.io/papz.html) - [ital exit](https://cacioman.github.io/italexit.html) - [note a margine](https://cacioman.github.io/incrociati.html) - [la settimana](https://cacioman.github.io/lasettimana.html) - [**intera rete**](https://cacioman.github.io/interarete.html) - [jogno](https://cacioman.github.io/jogno.html) - [video](https://www.youtube.com/channel/UCDoy-lXaaJVugJ9bLVSXGJw?view_as=subscriber) - [a.d.l.g.](https://www.youtube.com/channel/UC8B2bq3VdPtSeLzryWwNAlQ) - [shared post](https://t.me/cacioshared) - [**about me**](https://cacioman.github.io/aboutme.html)   
