@@ -2,7 +2,7 @@
 
 ### microstorie inconcludenti, foto fatte male, video insulsi e altre cose così capitate andando in giro     
 
-[![](https://drive.google.com/uc?id=1oqcZUeLVGULPsPrhUVFwU7DgSLKX0bPI "Roma Termini - backhome")](https://photos.app.goo.gl/DhWNbTDrradvg3cn6) 
+[![](https://drive.google.com/uc?id=1oqcZUeLVGULPsPrhUVFwU7DgSLKX0bPI "Roma Termini - backhome")](https://www.flickr.com/photos/cacioman) 
 
 **week #08**  
 - un'altra [settimana](https://cacioman.github.io/20wk08-lasettimana.html) di dubbi sottotraccia      
