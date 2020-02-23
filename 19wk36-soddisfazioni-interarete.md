@@ -1,7 +1,7 @@
 # soddisfazioni  
 
 #### della serie "la settimana" - wk06 2019  
-![](https://drive.google.com/uc?id=1r5rYgwfNkxz_8mOy4Y0pm1keLDTGxh7x "Roma Ostiense - binario 2")   
+<img src="https://drive.google.com/uc?id=1r5rYgwfNkxz_8mOy4Y0pm1keLDTGxh7x" alt="Roma Ostiense - binario 2" width="400">   
 <!--- /interarete112.png  --->  
 
 Termini. In attesa sulla banchina zozza e puzzolente della Metro B trovo solo una coppia di giovani turisti giapponesi, semplicemente perfetti: lei nel suo bel cappottino grigio che sembra una bambolina, lui più sportivo ma comunque genere attore di fotoromanzo. Stanno vicini vicini, compostissimi e molto attenti a non toccare nulla. La Metro deve essere appena passata e loro avranno rinunciato a prenderla per evidente incompatibilità (o anche solo per non stropicciarsi).  

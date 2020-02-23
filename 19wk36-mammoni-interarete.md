@@ -1,7 +1,7 @@
 # mammoni  
 
 #### della serie "intera rete" - wk05 2018  
-![](https://drive.google.com/uc?id=19H9WxTXJn1BNhcwbxSOKcUCvTlchFolR "Roma Termini - estate")  
+<img src="https://drive.google.com/uc?id=19H9WxTXJn1BNhcwbxSOKcUCvTlchFolR" alt="Roma Termini - estate" width="400">    
 <!--- /interarete109.png  --->  
 
 Anni che vado sui mezzi pubblici e quindi anni che origlio telefonate. Nella maggioranza dei casi chiamano mamma.  

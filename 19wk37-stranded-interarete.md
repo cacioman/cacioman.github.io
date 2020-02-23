@@ -1,7 +1,7 @@
 # stranded  
 
 #### della serie "intera rete" - w49 2017
-![](https://drive.google.com/uc?id=1ejvsGBOHnxLdHmTzObxzHQYnzA8vi_be "rinnovo carta identità") 
+<img src="https://drive.google.com/uc?id=1ejvsGBOHnxLdHmTzObxzHQYnzA8vi_be" alt="rinnovo carta identità"  width="400">  
 <!--- /interarete124.png  --->  
 
 In fondo a uno dei due binari della stazione Tor Vergata siamo in pochissimi, forse tre, separati una decina di metri uno dall'altro, mezzo imbalsamati dal primo freddo. Potremmo anche essere tutti delle sagome di cartone.  

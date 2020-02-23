@@ -1,7 +1,7 @@
 # telemarketing  
 
 #### della serie "intera rete" - wk12 2019  
-![](https://drive.google.com/uc?id=1KjZVtk1TgSNkiVH3XYnDCWu5Xk0Gui0Z "Fiumicino - Terminal 3")   
+<img src="https://drive.google.com/uc?id=1KjZVtk1TgSNkiVH3XYnDCWu5Xk0Gui0Z" alt="Fiumicino - Terminal 3" width="400">   
 <!--- /interarete108.png  --->  
 
 A Porta San Paolo il 30 express si infogna nel traffico e avanza passetto passetto. Seduto davanti c'è un tipo con una gran pila di libri appoggiati sulle gambe. E' di quelli che parlano da soli. Ha smesso di leggere e ora guarda fuori ed esorta il bus con tutte le sue forze: "dai! forza! e no, questo passalo! dai, dai, dai!".  

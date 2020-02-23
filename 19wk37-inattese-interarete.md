@@ -1,7 +1,7 @@
 # inattese  
 
 #### della serie "note a margine" - w39 2017
-![](https://drive.google.com/uc?id=1dwzJOGYuVj-0BBMkhKovPCNRx9N6qKVh "Roma Termini")  
+<img src="https://drive.google.com/uc?id=1dwzJOGYuVj-0BBMkhKovPCNRx9N6qKVh" alt="Roma Termini" width="400">  
 <!--- /interarete131.png  --->  
  
 Tiburtina, mattina. In attesa del treno una bella ragazza, forse sud americana, mangia una banana su una panchina del binario 5. Banana regolarmente sbucciata.     

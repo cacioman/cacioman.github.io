@@ -1,7 +1,7 @@
 # allarme
 
 #### della serie “pendolare stagionato” - wk03 2018  
-![](https://drive.google.com/uc?id=1kDc5OAh4EtSObMI7cO63PCVaBfYtXG4b "Roma - 714") 
+<img src="https://drive.google.com/uc?id=1kDc5OAh4EtSObMI7cO63PCVaBfYtXG4b" alt="Roma - 714" width="400"> 
 <!--- /interarete113.png  --->  
 
 I treni sulla linea Fara Sabina - Fiumicino sono a due piani, grossi e abbastanza selleroni. Nella carrozza di testa (o di coda, a seconda di come viene) trovi sempre una coppia di sedili con gli attacchi per disabili. Anche se stanno vicino al bagno, che puzza di chimico, se non sono mezzi sfondati sono comodissimi per allungare le gambe. Il sedile più esterno di due, ha come uno scalino sotto il finestrino molto comodo su cui appoggiarci il piede (e solo raramente occupato dalla solita smandrappata capace di sedersi ovunque). 

@@ -1,7 +1,7 @@
 # civiltà    
 
 #### della serie "intera rete" - w46 2017  
-![](https://drive.google.com/uc?id=1cVcVK_6viF84b84j4mkf6cmFMPxkApq0 "Metro B - Colosseo")   
+<img src="https://drive.google.com/uc?id=1cVcVK_6viF84b84j4mkf6cmFMPxkApq0" alt="Metro B - Colosseo"  width="400">    
 <!--- /interarete122.png  --->  
 
 Sul treno due tizi, disinvolti ben vestiti uno sui trentacinque l'altro più giovane, parlano ancora delle ferie. Quello sui 35 ha fatto un giro in nord europa e fa un po' l'uomo di mondo.  

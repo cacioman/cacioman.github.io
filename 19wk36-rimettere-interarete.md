@@ -1,7 +1,7 @@
 # rimettere debiti  
 
 #### della serie “intera rete” - wk35 2017  
-![](https://drive.google.com/uc?id=1d8m7VyeHjJOEQpyyL1v6EQNywpUOwfoo "Roma Termini - lato via Marsala")  
+<img src="https://drive.google.com/uc?id=1d8m7VyeHjJOEQpyyL1v6EQNywpUOwfoo" alt="Roma Termini - lato via Marsala" width="400">    
 <!--- /interarete120.png  --->  
 
 Sul treno c'è un tipo sui quaranta, uno qualsiasi, maglietta e jeans, che discute di soldi al telefono. Parla con uno che deve dei soldi a lui e che lui impallina senza astio ad ogni tentativo di svicolare: "ah, sì, allora è tanto facile: mi fa un bonifico ..."; "No guarda, ti capisco, è un imprevisto ma non può diventare un imprevisto mio, no?" e così di seguito.  

@@ -1,7 +1,7 @@
 # tredicesima  
 
 #### della serie "soggetti" - w51 2017  
-![](https://drive.google.com/uc?id=15nEbGzZ5_WsjeGRv_hpfrbakMIO-ziNg "Metro B - Termini") 
+<img src="https://drive.google.com/uc?id=15nEbGzZ5_WsjeGRv_hpfrbakMIO-ziNg" alt="Metro B - Termini" width="400"> 
 <!--- /interarete116.png  --->  
 
 Dice che Aglada aveva messo gli occhiali nella stessa borsa dove teneva anche il mensile che le avevano appena pagato prima di partire. Per l'agitazione e la paura di quando vai in Metro, con tutta quella gente che non sai chi sono, Aglada s'è messa poi seduta tenendosi la borsa stretta stretta al petto. Ce l'aveva così stretta che una signora mezza matta prima la guardava sfottente e poi ad alta voce le ha detto : "Avedi questa!.. Ma che te strigni?! L'hanno capito tutti che dentro la borsa c'hai i soldi tuoi".  

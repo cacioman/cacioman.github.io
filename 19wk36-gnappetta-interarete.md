@@ -1,7 +1,7 @@
 # gnappetta  
 
 #### della serie "intera rete" - wk04 2018  
-![](https://drive.google.com/uc?id=1JFEFNYdX7gDBAJo0flX8lbFrQO3lUfZ3 "Roma Terini - lato Marsala") 
+<img src="https://drive.google.com/uc?id=1JFEFNYdX7gDBAJo0flX8lbFrQO3lUfZ3" alt="Roma Terini - lato Marsala" width="400"> 
 <!--- /interarete110.png  --->  
 
 Termini, siamo in piedi sotto il tabellone delle partenze, tutti in attesa che diano i nostri binari.  

@@ -1,7 +1,7 @@
 # sliding
 
 #### della serie "note a margine" - w45 2017  
-![](https://drive.google.com/uc?id=1LbUQhqrO-zDxZSHD1_tRi-vpl7dvDjWO "Roma Termini - passati i varchi")  
+<img src="https://drive.google.com/uc?id=1LbUQhqrO-zDxZSHD1_tRi-vpl7dvDjWO" alt="Roma Termini - passati i varchi" width="400">   
 <!--- /interarete130.png  --->  
 
 Sul tapis roulant Ostiense Piramide uomo con pantaloncino e pedalini corti blu guarda concupiscente ex strappona  leopardata sopraggiungente nell'altro verso, lei apprezza, poi scorrono via.

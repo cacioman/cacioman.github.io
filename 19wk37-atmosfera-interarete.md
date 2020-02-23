@@ -1,7 +1,7 @@
 # quell'atmosfera lì  
 
 #### della serie "intera rete" - wk51 2017
-![](https://drive.google.com/uc?id=1zA3-4lHnCFkCE5MPDNSVo9inNBTKMAbu "Metro B")  
+<img src="https://drive.google.com/uc?id=1zA3-4lHnCFkCE5MPDNSVo9inNBTKMAbu" alt="Metro B" width="400">   
 <!--- /interarete125.png  --->  
 
 Metro B Piramide, come ti giri è tutto un gran discutere al telefonino di come passare le feste. "E allora famo come l'altr'anno ..." dicono da una parte e manco due metri dopo commentano: "Ma mica volemo fa come l'altr'anno!..".     

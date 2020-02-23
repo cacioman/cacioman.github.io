@@ -1,8 +1,8 @@
 # la ciociara  
-
 #### della serie “in giro”  - wk#02 2018  
 
-![](https://drive.google.com/uc?id=1_paOLx374UlgtGEeiw2RBy9vaP1SjXwX "Palermo - 619")  
+<img src="https://drive.google.com/uc?id=1_paOLx374UlgtGEeiw2RBy9vaP1SjXwX" alt="Palermo - 619" width="400">   
+
 <!--- interarete115.png --->  
 
 Al ritorno, sul treno per Cassino, trovo una sessantenne sullo smandrappato (tipo ex ex bellezza del paese) che parla al telefonino a tutto volume.  
