@@ -2,7 +2,7 @@
 
 #### della serie “in giro” - wk22 2018  
 
-<img src="https://drive.google.com/uc?id=1OdBq_lvW1YpWplgEAc6FbOhobEcuzBbS" width="600">    
+<img src="https://drive.google.com/uc?id=1OdBq_lvW1YpWplgEAc6FbOhobEcuzBbS" width="400">    
 <!--- interarete023.png 
 ![](https://drive.google.com/uc?id=1OdBq_lvW1YpWplgEAc6FbOhobEcuzBbS "Roma Frascati - legs")  
 --->  
