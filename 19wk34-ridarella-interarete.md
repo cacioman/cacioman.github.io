@@ -1,7 +1,7 @@
 # ridarella  
 
 #### della serie “intera rete” - wk37 2018  
-![](https://drive.google.com/uc?id=14YrfWlU3t3WZ8wZYcoKQTjW9Zg6vURhV "Metro B - palo")   
+<img src="https://drive.google.com/uc?id=14YrfWlU3t3WZ8wZYcoKQTjW9Zg6vURhV" alt="Metro B - palo" width="400">   
  
 <!--- /interarete084.png  --->  
 

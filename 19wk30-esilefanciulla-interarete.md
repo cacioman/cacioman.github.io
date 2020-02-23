@@ -1,7 +1,7 @@
 # esile fanciulla
 
 #### della serie "intera rete" - wk12 2018
-![](https://drive.google.com/uc?id=18LLfhuxw4ZPbQVfAqOvz3v0F6cb_QXv4 "Metro B")  
+<img src="https://drive.google.com/uc?id=18LLfhuxw4ZPbQVfAqOvz3v0F6cb_QXv4" alt="Metro B" width="400">  
 <!--- /interarete201.png -->  
 
 Sul treno seduta davanti a me c'è una ragazza (anche carina) forse somala o giù di lì: nera, minuta, magrissima.

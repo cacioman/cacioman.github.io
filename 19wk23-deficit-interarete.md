@@ -2,7 +2,7 @@
 # deficit  
 
 #### della serie “note a margine” - wk19 2018  
-![](https://drive.google.com/uc?id=1ClYBI24PedV2BLID5BMmbXUrlXt9tcYe "Ciampino - se ne discute")  
+<img src="https://drive.google.com/uc?id=1ClYBI24PedV2BLID5BMmbXUrlXt9tcYe" alt="Ciampino - se ne discute" width="400">    
 <!--- interarete015.png --->   
 
 In treno c’è una che parla a raffica al telefono, non smette mai. Dall'altra parte del filo devono avere giusto il tempo per qualche monosillabo.  

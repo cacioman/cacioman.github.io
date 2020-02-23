@@ -1,7 +1,7 @@
 # pressati  
 
 #### della serie “intera rete” - wk20 2018  
-![](https://drive.google.com/uc?id=1fTE5twY68gfLMoc1PX4AKUm50c-bHtKl "Roma Ostiense - ritardo")  
+<img src="https://drive.google.com/uc?id=1fTE5twY68gfLMoc1PX4AKUm50c-bHtKl" alt="Roma Ostiense - ritardo" width="400">    
 <!--- interarete012.png --->  
 
 Roma Termini, sera. Il treno per Cassino ha cinquanta minuti di ritardo in partenza. Tutta una estenuante serie di annunci “parte sì”, “parte no” poi scatta qualcosa (forse un semaforo che cambia colore o dei movimenti più decisi del capotreno) e tutti capiscono che è la volta buona. Quelli scesi a fumare buttano la sigaretta, quelli curvi sul telefono si risvegliano. Tutti insieme risalgono sul treno e sulle porte si forma un tappo umano, compattato e cattivo. 

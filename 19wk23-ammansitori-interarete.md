@@ -1,7 +1,7 @@
 # ammansitori  
 
 #### della serie “in giro” - wk19 2018  
-![](https://drive.google.com/uc?id=1lgN2W2ZqzPTHZPo21eUo-dmzryM7RsMt "Metro C - Lodi")  
+<img src="https://drive.google.com/uc?id=1lgN2W2ZqzPTHZPo21eUo-dmzryM7RsMt" alt="Metro C - Lodi" width="400">  
 <!--- interarete013.png --->
  
 Sono un omone dall'occhio bovino e la faccia seria e con questa mania che c'ho di fissare le persone che incontro in giro, è facile sembrare uno strano. Lo capisco dall'espressione "arieccone un altro!.." che fanno quelli che si accorgono di me (specie se ragazze, peggio ancora se ragazzi). Meno male che quasi tutti poi se ne fregano. C'è solo una piccolissima percentuale a cui gli parte subito il nervoso. Sono quelli che già di loro stanno più sul fuori di testa e che poi sono anche i più suscettibili e sensibili (e interessanti).    

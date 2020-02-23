@@ -1,7 +1,7 @@
 # rush finale  
 
 #### della serie “intera rete” - wk16 2018  
-![](https://drive.google.com/uc?id=1YhRSgrhf7D5Ntm_uenCH0ynUQ_rzASqP "Roma Fiumicino - cecagna")  
+<img src="https://drive.google.com/uc?id=1YhRSgrhf7D5Ntm_uenCH0ynUQ_rzASqP" alt="Roma Fiumicino - cecagna" width="400">  
 <!--- interarete0008.png --->   
 
 Stazione Roma Termini, ai binari dei treni regionali (ad esempio con destinazione Nettuno o meglio Minturno-Scauri), zona *testa binario* ad altezza motrice, orario serale intorno ai cinque minuti prima della prevista partenza. Ci si mette col treno alle spalle e lo sguardo rivolto alla stazione.    

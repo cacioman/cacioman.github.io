@@ -1,7 +1,7 @@
 # ascelle  
 
 #### della serie "Intera Rete" - w43 2017  
-![](https://drive.google.com/uc?id=1mcHT7CRNm2Dy1wbx18-5IR4EHKUEvk_8 "Metro B")   
+<img src="https://drive.google.com/uc?id=1mcHT7CRNm2Dy1wbx18-5IR4EHKUEvk_8" alt="Metro B" width="400">   
 <!--- /interarete097.png  --->  
 
 Metro B - Piramide. Arriva un treno coi vagoni vecchio tipo (di quelli sporchi e senza aria condizionata). Dentro è come stare in una grande ascella, calda e molliccia. In compenso il vagone non puzza neanche tanto ed è solo mezzo pieno.   

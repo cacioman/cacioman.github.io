@@ -1,7 +1,7 @@
 # definitivo  
 
 #### della serie “intera rete” - wk42 2018  
-![](https://drive.google.com/uc?id=1rw-8rPfmD-gkDcCPwnidvxJd5O_l-fwO "Punta Rais")   
+<img src="https://drive.google.com/uc?id=1rw-8rPfmD-gkDcCPwnidvxJd5O_l-fwO" alt="Punta Rais" width="400">   
 <!--- /interarete100.png  --->   
 
 Alla Favorita sul 619 sale una ragazza. E' poco più che una ragazzina: sarà sui venti-venticinque, buzziotta, coi vestiti rimediati, l'espressione stanca quasi smarrita. Con lei ci sono due ragazzini, i figli: un bambino in carrozzina e una bambina sui tre anni, molto ligia, entrambi curatissimi.  

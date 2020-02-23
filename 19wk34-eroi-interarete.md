@@ -1,7 +1,7 @@
 # eroi  
 
 #### della serie “intera rete” - wk37 2018  
-![](https://drive.google.com/uc?id=1H_bPJ61THiUcqWQLAjv8rzeFi3khHzh2 "Metro B - appesi")   
+<img src="https://drive.google.com/uc?id=1H_bPJ61THiUcqWQLAjv8rzeFi3khHzh2" alt="Metro B - appesi" width="400">   
 <!--- /interarete083.png  --->   
 
 Salgo sul 670. Dentro un po' di nervosismo. Seduto a ridosso dell'autista c'è uno che recita ad alta voce una sua cantilena: "DEO! - Mle mle mle! - Grazia! TUAAA! - Mle mle mle! - DEO! - Mle mle mle! - Grazia! PIENAA! - Mle mle mle - Mle mle mle - SANTISSIMAAA !”

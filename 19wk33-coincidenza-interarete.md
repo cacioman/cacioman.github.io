@@ -1,7 +1,7 @@
 # coincidenza
 
 #### della serie “intera rete” - wk27 2018  
-![](https://drive.google.com/uc?id=1ELZKNkwxQaGAGynm0vszEX0Rzu3jkjbH "Metro B - Garbatella")   
+<img src="https://drive.google.com/uc?id=1ELZKNkwxQaGAGynm0vszEX0Rzu3jkjbH" alt="Metro B - Garbatella" width="400">   
 <!--- /interarete098.png  --->  
 
 Sul treno in arrivo a Ciampino c'è una signora seduta con lo sguardo perso. Parla con una davanti a lei, forse è un'amica. Dice che le sta salendo l'ansia: a Ciampino deve cambiare treno per andare a Velletri e lei non sa bene come fare.  

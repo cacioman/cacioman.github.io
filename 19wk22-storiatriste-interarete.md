@@ -1,7 +1,7 @@
 # una storia triste  
 
 #### della serie "intera rete" - wk15 2018
-![](https://drive.google.com/uc?id=14xA5SLYAiGlvwPYeS7jF6JZzt3p1ZCp6 "Ciampino - scale") 
+<img src="https://drive.google.com/uc?id=14xA5SLYAiGlvwPYeS7jF6JZzt3p1ZCp6" alt="Ciampino - scale" width="400">   
   
 <!--- interarete007.png -->    
 

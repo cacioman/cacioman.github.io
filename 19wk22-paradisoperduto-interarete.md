@@ -1,7 +1,7 @@
 # paradiso perduto  
 
 #### della serie “in giro” - wk16 2018  
-![](https://drive.google.com/uc?id=1CFYcv-CQTZ3q8hN2kw0nNk38jBjYWfXO "Anagnina - verso scuola")  
+<img src="https://drive.google.com/uc?id=1CFYcv-CQTZ3q8hN2kw0nNk38jBjYWfXO" alt="Anagnina - verso scuola" width="400">  
 <!--- interarete009.png --->  
   
 Fiumicino, pausa pranzo, tavolini all'aperto di una pizzeria

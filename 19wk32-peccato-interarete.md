@@ -1,7 +1,7 @@
 # peccato  
 
 #### della serie “in giro” - wk45 2018 
-![](https://drive.google.com/uc?id=1BZd2H3qBElXIL7h4g6lwSZnRAKlpPl_3 "Metro - Termini") 
+<img src="https://drive.google.com/uc?id=1BZd2H3qBElXIL7h4g6lwSZnRAKlpPl_3" alt="Metro - Termini" width="400"> 
 <!--- /interarete075.png  --->  
 
 Oggi in metropolitana c’era un ragazzo nero con il figlio, nero pure lui. Il bambino, dell’età dell’asilo, era seduto sulle ginocchia del padre e insieme sembravano usciti da una fiction televisiva sul buonista: belli, puliti, educatissimi.  

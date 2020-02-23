@@ -1,7 +1,7 @@
 # make up artist 
 
 #### della serie “intera rete” - wk40 2018  
-![](https://drive.google.com/uc?id=1O42LRmdVzflp3DjPRGUHzGV7wcEhQNfX "Metro B San Paolo - segnalazioni")   
+<img src="https://drive.google.com/uc?id=1O42LRmdVzflp3DjPRGUHzGV7wcEhQNfX" alt="Metro B San Paolo - segnalazioni" width="400">   
 <!--- /interarete091.jpg  --->  
 
 Mattina. In treno è pieno e stiamo tutti in piedi. Io ho trovato da appoggiarmi vicino al finestrino e mi leggo un libro in posa plastica.  

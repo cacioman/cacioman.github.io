@@ -1,7 +1,7 @@
 # infilata  
 
 #### della serie “note a margine” - wk21 2018  
-![](https://drive.google.com/uc?id=1SKHnkT5fmGhgEhOZhSei_pJTB4veDDs4 "Roma Termini - mattina")  
+<img src="https://drive.google.com/uc?id=1SKHnkT5fmGhgEhOZhSei_pJTB4veDDs4" alt="Roma Termini - mattinaalt=" width="400">    
 <!--- interarete025.png --->  
 
   

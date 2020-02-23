@@ -1,7 +1,7 @@
 # idillio  
 
 #### della serie “intera rete” - wk38 2018  
-![](https://drive.google.com/uc?id=1klVQNIjNzVTZXxYvce_T2_0ujSkwStT9 "Metro B - Roma Termini")   
+<img src="https://drive.google.com/uc?id=1klVQNIjNzVTZXxYvce_T2_0ujSkwStT9" alt="Metro B - Roma Termini" width="400">   
 <!--- /interarete086.png  --->  
 
 Di prima mattina sul treno salgono un ragazzo e una ragazza sui vent'anni, cicciottelli, abbastanza ciancicati, occhio spento.  

@@ -1,7 +1,7 @@
 # brecciolino  
 
 #### della serie “intera rete” - wk35 2018  
-![](https://drive.google.com/uc?id=1Nk8_OW5Qm7QYqStIRIB3azh9y4noUiU8 "Roma Ostiense - binario 1")   
+<img src="https://drive.google.com/uc?id=1Nk8_OW5Qm7QYqStIRIB3azh9y4noUiU8" alt="Roma Ostiense - binario 1" width="400">   
 <!--- /interarete080.png  --->  
 
 A Ostiense sul parapetto del binario uno, siamo appoggiati in tanti. Aspettiamo il treno da Pisa per Termini. E' che la Metro B è ferma e a noi c'ha detto pure troppo bene di riuscire a prendere il Roma-Lido, chi a San Paolo chi a Marconi, anche se poi arrivati a Piramide niente *tapis roulant* (quand'è così la galleria la tengono sempre chiusa) e ci mandano tutti sullo stradone per piazzale dei Partigiani e Ostiense. 

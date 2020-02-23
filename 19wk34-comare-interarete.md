@@ -1,7 +1,7 @@
 # comare  
 
 #### della serie “intera rete” - wk27 2018  
-![](https://drive.google.com/uc?id=1H1lIEVTS9MwLGyFvKEcudZ7PzqpyltXC "Porta Maggiore - tram")   
+<img src="https://drive.google.com/uc?id=1H1lIEVTS9MwLGyFvKEcudZ7PzqpyltXC" alt="Porta Maggiore - tram" width="400">   
 <!--- /interarete099.png  --->  
 
 Sul treno al ritorno trovo una ragazza sulla trentina, belloccia, che telefona con un'amica. Straparla a tutto volume, un po' per superare il fracasso del Roma-Colleferro, un po' perché per una sua posa melodrammatica "non me importa più niente di niente".  

@@ -1,7 +1,7 @@
 # ce l'hanno nel sangue
 
 #### della serie “note a margine” - wk12 2018  
-![](https://drive.google.com/uc?id=1qmhyGzTejs83WMPiBJGq3B-9QSSbPgq_ "Roma Fiumicino - finalmente a casa")  
+<img src="https://drive.google.com/uc?id=1qmhyGzTejs83WMPiBJGq3B-9QSSbPgq_" alt="Roma Fiumicino - finalmente a casa" width="400">  
 <!--- /interarete062.png  --->  
 
 Il vagone della Metro è pieno di ragazzoni tedeschi di una scolaresca in gita. Sono simpatici: uno legge introverso sperando che lo si noti (ma non lo notano), tre-quattro scherzano a spintoni (resistendo a spintoni che smuoverebbero un bue), altri fanno finta di dare retta al professore (e quello parla parla parla), certi cantano una canzone rap (ma in tedesco), due coppie amoreggiano, e via così.  

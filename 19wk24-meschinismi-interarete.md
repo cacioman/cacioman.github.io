@@ -1,7 +1,7 @@
 # meschinismi    
 
 #### della serie “intera rete” - wk20 2018  
-![](https://drive.google.com/uc?id=17rQznWPkqwWjHw-rqaescuTgEmsfhdUf "Roma Termini - exit")  
+<img src="https://drive.google.com/uc?id=17rQznWPkqwWjHw-rqaescuTgEmsfhdUf" alt="Roma Termini - exit" width="400">  
 <!--- interarete019.png --->  
 
 Padre e figlia, vanno sul treno in bicicletta, lei farà l'asilo, lui sui 40, segaligno. Outfit Decathlon. Salgono a Tuscolana scendono a Villa Bonelli. Direzione scuola. Li vedo spesso. Lui passa tutto il tempo a parlare amenamente con lei, a raccontarle favolette e anche a farla giocare (se c'è la possibilità). Usa quel tono tanto buonino da Tonio Cartonio o molto edificante di sinistra.  

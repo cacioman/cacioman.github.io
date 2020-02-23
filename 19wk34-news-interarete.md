@@ -1,7 +1,9 @@
 # news  
 
 #### della serie "intera rete" - wk#39 2018  
-![](https://drive.google.com/uc?id=1PXzzeugyS30AY2ZHuHKINHnB_f1S9DlU "Roma Termini - piazzalone")   
+
+<img src="https://drive.google.com/uc?id=1PXzzeugyS30AY2ZHuHKINHnB_f1S9DlU " alt="Roma Termini - piazzalone" width="400">  
+
 <!--- /interarete089.png  --->   
 
 Alle sette e trenta sul mio treno ci stanno due universitari, lui-lei, che prima confabulano divertiti e poi scrivono giù qualcosa su WhatsApp. Immediatamente gli risuona il telefono.  

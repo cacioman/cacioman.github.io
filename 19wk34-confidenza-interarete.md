@@ -1,7 +1,7 @@
 # confidenza
 
 #### della serie “pendolare stagionato” - wk03 2018  
-![](https://drive.google.com/uc?id=1CU0JX62Sdf9FyVtGPbpOn-pVhFD9O3NS "Ciampino - mestizia del mattino")   
+<img src="https://drive.google.com/uc?id=1CU0JX62Sdf9FyVtGPbpOn-pVhFD9O3NS" alt="Ciampino - mestizia del mattino" width="400">   
 <!--- /interarete088.png  --->  
 
 Il pendolare stagionato non dà confidenza a nessuno. Manco morto. Al più accetta uno scambio di sguardi però rimanendo impassibile. Per non sbagliare, il pendolare stagionato c’ha sempre il muso lungo e risponde solo se interrogato.  

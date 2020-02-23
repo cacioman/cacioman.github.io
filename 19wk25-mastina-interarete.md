@@ -1,7 +1,7 @@
 # radar  
 
 #### della serie “note a margine” - wk21 2018  
-![](https://drive.google.com/uc?id=1pI-LJneBhONawztpXj_UJS3OfzhHEPDV "Roma Termini - orari")   
+<img src="https://drive.google.com/uc?id=1pI-LJneBhONawztpXj_UJS3OfzhHEPDV" alt="Roma Termini - orari" width="400">     
 <!--- interarete026.png --->  
   
 Dal cortile di Santa Balbina, che sta un po' in alto rispetto alla strada, esce una suora asiatica, piccoletta, di quelle che poi vedi sempre indaffarate a mettere a posto o pulire qualcosa (pavimenti, altari, statue). Anche questa ha il suo secchio di plastica pieno d'acqua (forse acqua saponata da buttare nello scolo in mezzo al piazzale o è acqua pulita che usa per innaffiare le palmette messe tutte intorno).  

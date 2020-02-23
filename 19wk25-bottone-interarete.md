@@ -1,7 +1,7 @@
 # bottone  
 
 #### della serie “pendolare stagionato” - wk23 2018  
-![](https://drive.google.com/uc?id=1def7w0DBVteY9eOEZlYGb9YTJakKROdZ "Roma Colleferro - quadrato e tondo")
+<img src="https://drive.google.com/uc?id=1def7w0DBVteY9eOEZlYGb9YTJakKROdZ" alt="Roma Colleferro - quadrato e tondo" width="400">   
 <!--- interarete024.png --->  
 
 Col treno che sta ormai entrando in stazione c'è sempre qualcuno, specie tra le signore cinquantenni, che si piazza davanti la porta, rivolto a guardare fuori, con la faccia a trenta centimetri dal vetro ed espressione vaga, spersa nel vuoto. Stanno così fino a quando il treno si ferma in attesa che qualcun altro spinga il *bottone apriporta* (che deve fargli schifo toccare) e poi escono per prime con calma studiata. Non so come fanno, ma ci riescono.      

@@ -1,7 +1,7 @@
 # arrivals    
 
 #### della serie “intera rete" wk26 2018
-![](https://drive.google.com/uc?id=1o6QDPTE2x54Ots_W2LUrK6DX1ubTjjS3 "Metro A - Repubblica")  
+<img src="https://drive.google.com/uc?id=1o6QDPTE2x54Ots_W2LUrK6DX1ubTjjS3" alt="Metro A - Repubblica" width="400">  
 <!--- /interarete073.png  --->  
 
 A Termini incrocio una famigliola africana appena arrivata. Sono cinque, carichi di pacchi, tutti nerissimi. Vanno a passo lento in mezzo al via vai di Termini e ci si sbrindellano in una lunga fila che va dal McDonald di una galleria allo *showroom* Nike dell'altra.  

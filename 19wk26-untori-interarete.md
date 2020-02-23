@@ -1,7 +1,7 @@
 # unti e untori  
 
 #### della serie “intera rete” - wk24 2018  
-![](https://drive.google.com/uc?id=118gI-GOuAsHP6O8TryC37A66Ubwng77F "Metro A - nasi")  
+<img src="https://drive.google.com/uc?id=118gI-GOuAsHP6O8TryC37A66Ubwng77F" alt="Metro A - nasi" width="400">    
 <!--- interarete036.png --->  
 
 Alla fermata del 671 c'è una signora sulla quarantina, scialba, con un vestito estivo dai colori pastello. Con occhiate fugaci, tiene sotto controllo il display sulla palina con gli orari di arrivo. Quando segna un minuto per il 671, tira fuori un guanto nero di cotone e se lo mette alla mano sinistra lasciando la destra svestita a tenerle una sua borsaccia.  

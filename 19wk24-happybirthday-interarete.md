@@ -1,7 +1,7 @@
 # happy birthday  
 
 #### della serie “note a margine” - wk20 2018  
-![](https://drive.google.com/uc?id=1tcpNKaqCJeT-vadwAFWBQA5AS1J_K_or "via Terme Caracalla - dove i romani giocavano a palla")  
+<img src="https://drive.google.com/uc?id=1tcpNKaqCJeT-vadwAFWBQA5AS1J_K_or" alt="via Terme Caracalla - dove i romani giocavano a palla" width="400">    
 <!--- interarete018.png --->  
 
 Il gruppo di pendolari di quelli che fanno sempre comunella nel mio treno (e che sempre schiamazzano, ridono e litigano tipo "uomini e donne") oggi hanno pure organizzato un divertentissimo compleanno per una di loro.  

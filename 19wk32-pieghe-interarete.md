@@ -1,7 +1,7 @@
 # pieghe
 
 #### della serie "intera rete" - wk13 2018
-![](https://drive.google.com/uc?id=1QrviQUi_OP02K7IjRWFzlkI5Snw_8WcJ "Metro B - calca")   
+<img src="https://drive.google.com/uc?id=1QrviQUi_OP02K7IjRWFzlkI5Snw_8WcJ" alt="Metro B - calca" width="400">   
 <!--- /interarete065.png  --->  
 
 In treno c'è un tipo liscio, glabro (niente barba, niente capelli, niente sopracciglia). Appoggiati sul cranio ossuto c'ha un paio di occhiali da sole tecnicissimi, da ciclista. Anche le orecchie sembrano strane (come più appuntite), la giacchetta che indossa, molto tecnica, è pure gialla e a ben guardare pure lui è sul giallo, giallo come i Simpson.  

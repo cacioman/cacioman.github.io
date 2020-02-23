@@ -1,7 +1,7 @@
 # trasparenti  
 
 #### della serie “intera rete” - wk36 2018  
-![](https://drive.google.com/uc?id=14TD5P1p4tmgqkKKVMjVj9KvaBNe-BuUj "Colosseo")   
+<img src="https://drive.google.com/uc?id=14TD5P1p4tmgqkKKVMjVj9KvaBNe-BuUj" alt="Colosseo" width="400">   
 <!--- /interarete082.png  --->  
 
 Il 46 risale i tornanti delle mura vaticane lento e fuori giri. Batte un gran sole ma dentro siamo in pochi e pure con l'aria condizionata. Salgono delle signore Rom: due paciose sui cinquanta, una sui trenta, smilza e nervosa e una ragazza adolescente, ma vestita come una coattella qualsiasi. Ci sono anche tre razzini con le magliette da Superman. Sono i figli della smilza, scatenatissimi: urlano, corrono, saltano ovunque e si appendono agli appositi sostegni. Un macello. La smilza allenta pure qualche sberla ma poco convinta.   

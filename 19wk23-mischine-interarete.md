@@ -1,7 +1,8 @@
 # mischine  
 
 #### della serie "settimanale" - 2018 wk#19 
-![](https://drive.google.com/uc?id=1IFpGz_uwuor74tkg0G_k9L-VE8EhynFD "Roma Palermo - rullaggio")  
+<img src="https://drive.google.com/uc?id=1IFpGz_uwuor74tkg0G_k9L-VE8EhynFD" alt="Roma Palermo - rullaggio" width="400">  
+
 <!--- interarete017.png --->  
 
 L'ultima volta in partenza da Punta Raisi, già tutti imbarcati, siamo rimasti fermi un'eternità. Dice che era per via di due ritardatari.  

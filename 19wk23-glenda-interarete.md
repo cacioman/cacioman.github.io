@@ -2,7 +2,7 @@
 # Glenda  
 
 #### della serie “note a margine” - wk19 2018  
-![](https://drive.google.com/uc?id=1-K7KIKWOBIwonlVX_sO6MAz8K9JqrHIz "Roma Fiumicino - sad cat")  
+<img src="https://drive.google.com/uc?id=1-K7KIKWOBIwonlVX_sO6MAz8K9JqrHIz" alt="Roma Fiumicino - sad cat"  width="400">    
 <!--- interaret016.png --->  
  
 A San Paolo, su un Ducato mezzo rotto e malamente parcheggiato, al volante c'è una Glenda Jackson tragica che fuma e guarda nel vuoto.  

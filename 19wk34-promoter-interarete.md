@@ -1,7 +1,7 @@
 # promoter  
 
 #### della serie “in giro” - wk35 2018  
-![](https://drive.google.com/uc?id=1kz3C84euB42Dz21IUuGKIdSs2F90dZI_ "Trenino")  
+<img src="https://drive.google.com/uc?id=1kz3C84euB42Dz21IUuGKIdSs2F90dZI_" alt="Trenino" width="400">  
 <!--- /interarete081.png  --->  
 
 Su via Giustiniano Imperatore incrocio due vestiti tipo *Le iene*, ma per il caldo stanno senza giacca: solo camicia  bianca, cravattina, pantaloni e scarpe neri. Potrebbero essere dei promoter di aspirapolveri o cose simili. Uno è un ragazzone sui venti anni, un metro e novanta, bello in carne. Dondola dietro a una tipetta sui trenta, frenetica e abbronzatissima. Alta la metà di lui. Peserà quaranta chili. Tiene stretta sotto il braccio una cartellina gialla che tracima fogli. Praticamente una formichetta.  

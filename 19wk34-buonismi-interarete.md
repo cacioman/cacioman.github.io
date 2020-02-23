@@ -1,7 +1,7 @@
 # buonismi  
 
 #### della serie “intera rete” - wk40 2018  
-![](https://drive.google.com/uc?id=1BWfmlriq8drBy12Z9Nh4sMLtX_RRGaKz "Muratella")   
+<img src="https://drive.google.com/uc?id=1BWfmlriq8drBy12Z9Nh4sMLtX_RRGaKz" alt="Muratella" width="400">   
 <!--- /interarete092.png  --->  
 
 Treno a tarda sera, fermo in partenza. Siamo in pochi. Seduta poco lontano da me c'è una ragazza magretta, tipo ucraina, acciambellata col suo smartphone. Io mi mangio un panino.   
