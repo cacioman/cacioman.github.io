@@ -1,9 +1,11 @@
 # ultima sigaretta  
 
 #### della serie “in giro” - wk22 2018  
+
+<img src="https://drive.google.com/uc?id=1OdBq_lvW1YpWplgEAc6FbOhobEcuzBbS" width="600">    
+<!--- interarete023.png 
 ![](https://drive.google.com/uc?id=1OdBq_lvW1YpWplgEAc6FbOhobEcuzBbS "Roma Frascati - legs")  
-<img src="https://drive.google.com/uc?id=1OdBq_lvW1YpWplgEAc6FbOhobEcuzBbS" width="500">    
-<!--- interarete023.png --->  
+--->  
 
 Alla fermata del bus una signora sui settantacinque (ma che si tiene disperatamente su) mi chiede una sigaretta. Penso subito alle volte che ho usato questo approccio genere da militare in libera uscita. Non tantissime ma poi che c'entra? non è certo una situazione di quelle, credo. Non lo è.  
 "No, mi spiace" dico "non fumo".  
