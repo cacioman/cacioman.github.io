@@ -1,6 +1,6 @@
 # intera rete  
 
-![](https://drive.google.com/uc?id=19r-sX6PJQ8F81UE_FqrtIK8KkQREFpH0 "Metro B - man at work")  
+<img src="https://drive.google.com/uc?id=19r-sX6PJQ8F81UE_FqrtIK8KkQREFpH0" alt="Metro B - selfie" width="400">  
 
 ### sarebbe a dire: quello che mi succede quando vado al lavoro coi mezzi pubblici romani e che poi racconto come se fosse una cosa veramente interessante  
 
