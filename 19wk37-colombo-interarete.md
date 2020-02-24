@@ -1,7 +1,7 @@
 # colombo 
 
 #### della serie "intera rete" - wk35 17  
-<img src="https://drive.google.com/uc?id=13uNE7F5YFy5WEN-aj86dEKROUyYxNqHn" "Metro B" width="400">  
+<img src="https://drive.google.com/uc?id=13uNE7F5YFy5WEN-aj86dEKROUyYxNqHn" alt="Metro B" width="400">  
 <!--- /interarete121.png  --->  
 
 Ad una certa ora del mattino sul 769 attaccano a suonare i cellulari delle extracomunitarie, badanti o COLF che siano. E’ tutto un susseguirsi di musichette strane e di mani che si tuffano nelle borsette. Le conversazioni sono sempre le stesse: “Sì, sono sull’auto. Sì, sì, sto arrivando.”  
