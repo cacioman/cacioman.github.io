@@ -1,7 +1,7 @@
 # colombo 
 
 #### della serie "intera rete" - wk35 17  
-<img src="https://drive.google.com/uc?id=13uNE7F5YFy5WEN-aj86dEKROUyYxNqHn" alt="Metro B" width="400">  
+<img src="https://drive.google.com/uc?id=13uNE7F5YFy5WEN-aj86dEKROUyYxNqHn" alt="Metro B" width="400">   
 
 <!--- /interarete121.png  --->  
 
