@@ -1,5 +1,5 @@
 # jogno  
-### ancora roba abbastanza undergroug  
+### ancora roba abbastanza underground  
 
 **relatività ristretta** - wk03 2020    
 Alla fermata compare un vecchietto rinseccolito che si trascina con due bastoni. Già solo per raggiungere la palina ci mette un'eternità.  
