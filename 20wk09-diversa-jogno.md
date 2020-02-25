@@ -3,7 +3,7 @@
 
 ![](https://drive.google.com/uc?id=1KuOkp6mF8rjUqs3VysJ0beJjJ-a7-wiH "Palazzo Merulana - Tina Modotti")    
 
-Sul treno sale una ragazza piccoletta che porta una grossa borsa sportiva, di quelle da calcio con il fondo per mettere gli scarpini. Indossa degli *shorts* attillati, scarpe Puma e una maglietta tecnica di colore *fluo* con lo *sponsor* di un torneo femminile di calcetto. Ha i capelli a mezza lunghezza, tiratissimi, raccolti in un mozzicone di coda che ricorda quella dei *boxer*. Lei stessa, gambe muscolose e baricentro basso, sembra avere il tipo di energia e la reattività di  quella razza.  
+Sul treno sale una ragazza piccoletta che porta una grossa borsa sportiva, di quelle da calcio con il doppio fondo per mettere gli scarpini. Indossa degli *shorts* attillati, scarpe Puma e una maglietta tecnica di colore *fluo* con lo *sponsor* di un torneo femminile di calcetto. Ha i capelli a mezza lunghezza, tiratissimi, raccolti in un mozzicone di coda che ricorda quella dei *boxer*. Lei stessa, gambe muscolose e baricentro basso, sembra avere il tipo di energia e la reattività di  quella razza.  
 Osservata si mette a leggere un giornale, tipo *il Corriere dello sport*. Noto che è anche scuretta di pelle.   
 Come sarebbe a dire: "*ANCHE*" ?!  
 
