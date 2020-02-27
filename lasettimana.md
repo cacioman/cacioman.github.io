@@ -1,6 +1,10 @@
 # la settimana  
 ### consuntivo settimanale  
 
+**limo** - wk06 2020    
+Rione Monti. Mattina presto. Attraverso a piedi la strada passando vicino ad un pulmino Mercedes in doppia fila. E’ un coso nero, tirato a lucido, lungo oltremisura (tipo Limousine). Mi accorgo solo all'ultimo che in realtà il pulmino sta lentissimamente scivolando in avanti e per poco non mi faccio investire a zero all’ora. Mi salvo. L'autista, un ceffo sul ripulito, non fa una piega: alza solo distratto lo sguardo, frena quel tanto che basta e torna a curvarsi sul suo telefonino.   
+Poco più avanti, da un alberghetto stanno uscendo quattro-cinque ragazze buzzicotte sui venti-venticinque, forse sudamericane. Si guardano intorno interrogative. Il pulmino deve essere il loro taxi. Quando una delle ragazze lo realizza, caccia un urlo di entusiasmo “WOW! A Limo?!” e tutte le altre risuonano con gridolini vari. A quel punto anche il ceffo si rianima e con un ghigno di malcelata soddisfazione acquatta felpatamente la Limo vicino alle ragazze.    
+E' stata una settimana così: spietatamente meritocratica.
 
 **pandi** - wk05 2020  
 Mattina presto. Passo da piazza Vittorio all'angolo dove di solito c'erano delle signore cinesi a fare *tai chi chuan* (tantissime, molto coreografiche con le loro belle tutine rosse e bianche). Ora, proprio dove stavano loro, ci stanno facendo dei lavori (che sembrano eterni) e non le vedo più. Magari si sono solo trasferite dall'altra parte della piazza.  
