@@ -3,12 +3,11 @@
 
 ![](https://drive.google.com/uc?id=14jPV9KmSwVnFTcESYbIXY9WO8wvgZ-TB "Roma Termini - al tabellone arrivi/partenze lato via Giolitti")   
 
-Alvarino osserva filosofico che una volta se starnutivi ti dicevano "salute", ora sei fortunato se non ti dicono "li mortacci tua". In effetti in Metro è abbastanza così.   
-Ai varchi di accesso di Roma Termini i controllori non stanno più sulla soglia del varco ma sono arretrati di 3-4 metri, ben distanti dal flusso di persone in ingresso che ora controllano con più disinvoltura (ma sempre imperscrutabili).  
-Anche i capitreno hanno trovato una loro strategia: scompaiono subito dopo la partenza evitando di controllare i biglietti (sospetto vadano nella cabina di coda: in quella di testa c'è già il macchinista).    
-Di mascherine in giro ne ho viste poche. Risalendo ad esempio il binario 19 e guardando nei finestrini del treno in partenza per Cassino (un treno lunghissimo, di pendolari) ne ho contate solo un paio. Su un bus 766 da San Paolo neanche una e c'erano parecchi anziani (forse più impegnati a tenersi tenacemente aggrappati agli appositi sostegni).  
-In proporzione le mascherine le indossano sopratutto i turisti stranieri, specie quelli orientali (che già lo facevano prima ma ora sono molti di più). Gli italiani le portano meno: o usano certe cose molto vistose a forma di noce di cocco (e sembrano tutti *il pianeta delle scimmie*) o fanno i vaghi tenendo tatticamente una sciarpa sul viso, come in una tormenta di neve (quando però poi la sciarpa gli cade dal viso, se la rimettono in fretta tradendo gesti nervosi).   
-E' stata una settimana così: a prenderci le misure.  
+Inizia con Alvarino che osserva filosofico: una volta se starnutivi ti dicevano "salute", ora sei fortunato se non ti dicono "li mortacci tua". In effetti poi in Metro starnutisco ed è abbastanza così.   
+Alla stazione Termini noto che ai varchi di accesso i controllori non stanno gambe larghe sulla soglia ma sono arretrati di 3-4 metri, ben distanti dal flusso in ingresso. Chi passa fa come la mossa di mostrare l'abbonamento nel vuoto, poi capisce e lascia stare. Anche i capitreno vanno a scartamento ridotto: subito dopo la partenza scompaiono evitando di controllare i biglietti (sospetto vadano nella cabina di coda: in quella di testa c'è già il macchinista).    
+Risalendo il binario 19 e guardando nei finestrini del treno in partenza, un treno per Cassino lunghissimo e pieno di pendolari, conto solo due persone con le mascherine. Sul bus 766 che ho preso a San Paolo neanche una mascherina (gli anziani, di solito abbastanza fatalisti, sono per lo più impegnati a tenersi tenacemente aggrappati ai corrimano).  
+In proporzione con le mascherine sono di più i turisti stranieri, specie quelli orientali (che già lo facevano prima, anche se in misura molto minore). Gli italiani o usano certe mascherine molto vistose, bianche, a forma di noce di cocco (e sembrano tutti *il pianeta delle scimmie*) o più spesso fanno i vaghi tenendo una sciarpa a coprirgli tutto il viso, come affrontassero una tormenta (ma la sciarpa gli scivola sempre via e loro se la rimettono in fretta tradendo gesti nervosi).   
+E' stata una settimana così: incominciato a prenderci le misure.  
 
 ---  
 [home](/index.md) - [about me](/aboutme.md)  
