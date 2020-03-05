@@ -1,5 +1,5 @@
 # braccia
-### della serie "tre note a margine" - wk10 2020  
+### della serie "jogno" - wk10 2020  
 
 ![](https://drive.google.com/uc?id=1DzqK9mtZvNYSl7_MXuiNhO1yFTH9vqJf  "Metro B - braccia")   
 
