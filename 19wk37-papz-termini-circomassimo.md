@@ -8,6 +8,9 @@
 
 durata 30 minuti - [vedi tracciato](https://drive.google.com/open?id=17AkcZ-kSqDk33pwxQ-r3hHxlNlBtMcNg&usp=sharing)   
 
+[**braccia**](/20wk10-braccia-papz.md) - wk10 2020  
+di romanissime braccia attraversando davanti alla FAO  
+
 **sotto controllo** - wk11 2019  
 Mattina presto dopo Santa Maria Maggiore, diciamo dalle parti di Termini. Si sentono le urla di una donna, urla bestiali come se qualcuno le stesse staccando le dita di una mano o se volessero fucilarle un figlio. Pronuncia frasi incomprensibili, forse in una lingua dell'est, ma a destabilizzare basta quel suono sgraziato e forte: una di quelle cose che prende al cervelletto (o ad altri gangli nervosi primari).   
 Mano mano che mi avvicino però le urla scemano. Incrocio venirmi incontro solo una signora pallina, col viso scavato. La guardo interlocutorio e lei sbotta in una di quelle urla bestiali (con la mano davanti alla bocca come a coprirsi). Più avanti, qualcuno dei militi che sta uscendo dalla una caserma per andare al bar (penso siano dei finanzieri), si allarma: "tranquilli" gli risponde uno che ha già capito "è tutto sotto controllo". Le urla infatti si allontano.   
