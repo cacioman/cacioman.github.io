@@ -1,5 +1,5 @@
 # braccia
-### della serie "P.A.P.Z." - wk10 2020  
+### della serie "percorsi alternativi pendolari zen" - wk10 2020  
 
 ![](https://drive.google.com/uc?id=1jZ3RyZscecJufHQH8eaNsaNZvzvcm6b- "Roma - Circo Massimo")  
 più o meno [tra Roma Termini e Circo Massimo](/19wk37-papz-termini-circomassimo.md) - più precisamente [qui](https://drive.google.com/open?id=17AkcZ-kSqDk33pwxQ-r3hHxlNlBtMcNg&usp=sharing)  
