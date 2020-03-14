@@ -1,5 +1,5 @@
 # misure   
-### della serie "a settimana" - wk11 2020   
+### della serie "la settimana" - wk11 2020   
 
 ![](https://drive.google.com/uc?id=1B9ffdAtnWsqaPykeoCCbIRWFeI1rkGgf "Frascati - signora di fronte")  
 
