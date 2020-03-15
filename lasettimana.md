@@ -1,6 +1,11 @@
 # la settimana  
 ### consuntivo settimanale  
 
+
+**dubbi** - wk08 2020  
+Quando arriva il 766 è praticamente vuoto. Ci sono solo un'anziana bangladese che guarda fuori, due ragazzine del liceo con le cuffiette e un tipo *macio* messo a gambe larghe sul pianerottolo. Mentre salgo mi si affianca una cicciona sui trentacinque . Ha l'espressione disarmante di quelli un po' fuoriditesta. Con disinvolta familiarità mi chiede: "Ma com'è che questo 766 è così vuoto? Boh...".  Rispondo anche io vagamente e un po' sorpreso (pensavo di avere idee più originali).  
+E' stata una settimana così: di sospetti nazional popolari.   
+
 **limo** - wk06 2020    
 Rione Monti. Mattina presto. Attraverso a piedi la strada passando vicino ad un pulmino Mercedes in doppia fila. E’ un coso nero, tirato a lucido, lungo oltremisura (tipo Limousine). Mi accorgo solo all'ultimo che in realtà il pulmino sta lentissimamente scivolando in avanti e per poco non mi faccio investire a zero all’ora. Mi salvo. L'autista, un ceffo sul ripulito, non fa una piega: alza solo distratto lo sguardo, frena quel tanto che basta e torna a curvarsi sul suo telefonino.   
 Poco più avanti, da un alberghetto stanno uscendo quattro-cinque ragazze buzzicotte sui venti-venticinque, forse sudamericane. Si guardano intorno interrogative. Il pulmino deve essere il loro taxi. Quando una delle ragazze lo realizza, caccia un urlo di entusiasmo “WOW! A Limo?!” e tutte le altre risuonano con gridolini vari. A quel punto anche il ceffo si rianima e con un ghigno di malcelata soddisfazione acquatta felpatamente la Limo vicino alle ragazze.    
