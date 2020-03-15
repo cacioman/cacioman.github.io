@@ -4,7 +4,7 @@
 
 [![](https://drive.google.com/uc?id=1WnuOt0OYxMCSSZqxtIbfzr-b8UZo7DO2 "Monte Porzio Catone - fila al market - foto: Jim Lyons")](https://www.flickr.com/photos/cacioman)  
 
-ultime cose   
+usciti questa settimana   
 [misure](https://cacioman.github.io/20wk11-lasettimana.html) - [una stesa](https://cacioman.github.io/20wk11-unastesa-acasa.html) - [ammucchiati (nostalgica)](https://www.flickr.com/gp/cacioman/0129i8) - [imbarazzo](https://cacioman.github.io/19wk37-inattese-interarete.html) - [fotoblog](https://www.flickr.com/photos/cacioman)    
 
 ancora on line   
