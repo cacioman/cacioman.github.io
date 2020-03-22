@@ -214,10 +214,6 @@ Sul treno c'è una bambinetta che saltella nel corridoio tra scalini, borse e in
 Al Parco s'è formato un capannello di padrone di cani. Tra loro fanno un mesto vociare.  Parlano di un cane che sta male è terminale. Cordoglio. Ma è il cane o la padrona? No, rassicurano, solo il cane. Meno male che io c'ho mio figlio, anche se sta alla Balduia ci pensa lui. Al cane? E sì certo al cane, io c'ho solo un po' alto il colesterolo cattivo. Chi sta alla Balduina, il cane?  
 Intanto i cani, anche loro molto anziani, attendono accovacciati il momento di riaccompagnare a casa le loro padrone.   
 
-**rampa** - w39 17  
-Due ragazzi africani, alti, magri, nerissimi, che camminano in contromano sul curvone di una rampa di accesso del raccordo. Avranno 20-25 anni al massimo. Stanno affiancati, ognuno con sulla spalla una bustona di plastica strapiena. A entrambi sul viso risalta il cavo bianco delle cuffiette.  
-Verrebbe da fotografarli, non tanto per la simmetria della composizione (bustone, cuffiette, curvone, figure nere slanciate) sarebe da farlo solo per come sembrano essere piovuti dal nulla su un curvone di una rampa del raccordo, qui all'uscita 23.  
-
 **lasciar perder** - wk34 2017    
 Sul treno che arriva da Ponte Galeria c'è una coppia di cinquantenni. Sembrano due dell'est ma potrebbero anche essere di Rosciolo dei Marsi. Sono tristissimi. Lei non parla e guarda fissa nel vuoto. Lui la abbraccia silenzioso. Nella migliore delle ipotesi sono due che si stanno lasciando, nella peggiore meglio non parlarne.
 
