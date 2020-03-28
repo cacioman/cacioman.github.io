@@ -1,25 +1,11 @@
 # intera rete  
 
-<img src="https://drive.google.com/uc?id=19r-sX6PJQ8F81UE_FqrtIK8KkQREFpH0" alt="Metro B - selfie" width="400">  
+<img src="https://drive.google.com/uc?id=11N_pssX9cwz922AHDqqImQFUluF-Q6VR" alt="la grande rete di Roma Capitale" width="600">  
 
 ### sarebbe a dire: quello che mi succede quando vado al lavoro coi mezzi pubblici romani e che poi racconto come se fosse una cosa veramente interessante  
 
-### #1 - soggettoni  
-- [santa pazienza](/19wk21-santapazienza-interarete.md): del fatto che i mattacchioni salveranno il mondo, una predica alla volta  
-- [beccato!](/19wk21-beccato-interarete.md): di quando mi hanno beccato e poi l'ho beccati io   
-- [ammansitori](/19wk23-ammansitori-interarete.md): di quando ti intortano e pensi che invece no  
-- [mischine](/19wk23-mischine-interarete.md): di attesa, di riconciliazioni e di sospetti  
-- [svagata](/19wk26-svagata-interarete.md): di ragazze così  
-- [untori](/19wk26-untori-interarete.md): di lotta senza quartiere al bacillo  
-- [brughiera](/19wk28-brughiera-interarete.md): di quanto senti le voci da in fondo alla brughiera e ti viene tanto da sibilare pure a te  
-- [arrivals](/19wk32-arrivals-interarete.md): degli oscuri personaggi che circolano a Roma Termini  
-- [avvisi](/19wk30-avvisi-interarete.md): di proclami alla nazione e altri avvisi meno sonori ma più efficaci  
-- [vecchia guardia](/19wk32-vecchiaguardia-interarete.md): di quando invecchiano male (e sempre con lo stesso stivaletto)  
-- [make-up artist](/19wk34-makeupartist-interarete.md): quando le occhiate definitissime lasciano il segno    
-- [rispetto](/19wk37-rispetto-interarete.md): di quando c'è un problema di rispetto    
-
   
-### #2 - apparizioni  
+### #1 - apparizioni  
 - [rampa](/19wk21-rampa-interarete.md): di giovanotti sulla rampa del raccordo  
 - [paradiso perduto](/19wk22-paradisoperduto-interarete.md): di quando omaccioni di specchiata virilità si fermano in pose elegiache  
 - [Glenda](/19wk23-glenda-interarete.md): di un Ducato e di una coppia collaudata che ci sta sopra    
@@ -33,6 +19,21 @@
 - [babbi](/19wk37-babbi-interarete.md): di quando faccio il musone perché sono una persona seria  
 - [sliding](/19wk37-sliding-interarete.md): di quando ti vedi scorrere le cose come in un film    
 - [mezzaluna](/19wk37-mezzaluna-interarete.md): di quando emerge limpido il profilo del misterioso satellite     
+
+### #2 - soggettoni  
+- [santa pazienza](/19wk21-santapazienza-interarete.md): del fatto che i mattacchioni salveranno il mondo, una predica alla volta  
+- [beccato!](/19wk21-beccato-interarete.md): di quando mi hanno beccato e poi l'ho beccati io   
+- [ammansitori](/19wk23-ammansitori-interarete.md): di quando ti intortano e pensi che invece no  
+- [mischine](/19wk23-mischine-interarete.md): di attesa, di riconciliazioni e di sospetti  
+- [svagata](/19wk26-svagata-interarete.md): di ragazze così  
+- [untori](/19wk26-untori-interarete.md): di lotta senza quartiere al bacillo  
+- [brughiera](/19wk28-brughiera-interarete.md): di quanto senti le voci da in fondo alla brughiera e ti viene tanto da sibilare pure a te  
+- [arrivals](/19wk32-arrivals-interarete.md): degli oscuri personaggi che circolano a Roma Termini  
+- [avvisi](/19wk30-avvisi-interarete.md): di proclami alla nazione e altri avvisi meno sonori ma più efficaci  
+- [vecchia guardia](/19wk32-vecchiaguardia-interarete.md): di quando invecchiano male (e sempre con lo stesso stivaletto)  
+- [make-up artist](/19wk34-makeupartist-interarete.md): quando le occhiate definitissime lasciano il segno    
+- [rispetto](/19wk37-rispetto-interarete.md): di quando c'è un problema di rispetto    
+
      
 
 ### #3 - contro gli elementi avversi  
@@ -167,6 +168,4 @@
 
 ---  
 [home](/index.md) - [about me](/aboutme.md)   
-<!--stackedit_data:
-eyJoaXN0b3J5IjpbNzQ0NDYwOTMzXX0=
--->
+
