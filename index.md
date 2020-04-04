@@ -17,7 +17,7 @@ raccolte: [p.a.p.z](https://cacioman.github.io/papz.html) - [**intera rete**](ht
 
 --->  
  
-**NB**: Ho raccolto in un file unico le storie e le foto di "Intera Rete": le trovate [qui in formato word](https://docs.google.com/document/d/1PV7WbbdWiHOb4LGqKyP_v74guc3X_x8mVvlGyGiRBqY/edit?usp=sharing&authuser=0) e [qui in formato html](https://docs.google.com/document/d/e/2PACX-1vQRwiANaom26EhtbYZtutYeL-2fAjymjrPLMVab8JFhXCJS-6tZhbRlzBT5uN64oruOdjbD5KI3Oofl/pub?authuser=0).  
+**NB**: Ho raccolto in un file unico le storie e le foto di "Intera Rete": le trovate [qui in formato **word**](https://docs.google.com/document/d/1PV7WbbdWiHOb4LGqKyP_v74guc3X_x8mVvlGyGiRBqY/edit?usp=sharing&authuser=0) e [qui in formato **html**](https://docs.google.com/document/d/e/2PACX-1vQRwiANaom26EhtbYZtutYeL-2fAjymjrPLMVab8JFhXCJS-6tZhbRlzBT5uN64oruOdjbD5KI3Oofl/pub?authuser=0).  
 L'idea è quella poi di stamparne un libretto. Se quindi avete dei suggerimenti (sulle foto, sulle storie, su come sono accoppiate, ecc) o se notate dei refusi, fatemelo sapere via mail [cacioman@gmail.com](mailto:cacioman@gmail.com).  Grazie!
 
 ---
