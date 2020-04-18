@@ -2,7 +2,7 @@
 
 #### microstorie inconcludenti, foto fatte male, video insulsi e altre cose così nei paraggi di casa  
 
-[![](https://drive.google.com/uc?id=1-ukU2GxXs4UYo-ZTdXFTtOYc9CVbf14y "Frascati")](https://docs.google.com/document/d/e/2PACX-1vQRwiANaom26EhtbYZtutYeL-2fAjymjrPLMVab8JFhXCJS-6tZhbRlzBT5uN64oruOdjbD5KI3Oofl/pub?authuser=0)  
+[![](https://drive.google.com/open?id=1tYmJAGJQAjUYgPJLsrv6WPhFW2kXgS1N "Frascati - Passeggiata")](https://docs.google.com/document/d/e/2PACX-1vQRwiANaom26EhtbYZtutYeL-2fAjymjrPLMVab8JFhXCJS-6tZhbRlzBT5uN64oruOdjbD5KI3Oofl/pub?authuser=0)  
 
 week #16: [letti (o quasi)](https://www.flickr.com/gp/cacioman/1F0cx0) - [bucato](https://youtu.be/OccDOxmylV0) - [fotoblog](https://www.flickr.com/photos/cacioman)   
 week #15: [paesaggio antropizzato](https://www.flickr.com/gp/cacioman/14z0bC)      
