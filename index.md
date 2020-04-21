@@ -4,11 +4,9 @@
 
 [![](/20wk16main.png "Frascati - Passeggiata")](https://docs.google.com/document/d/e/2PACX-1vQRwiANaom26EhtbYZtutYeL-2fAjymjrPLMVab8JFhXCJS-6tZhbRlzBT5uN64oruOdjbD5KI3Oofl/pub?authuser=0)  
 
-week #16: [letti (o quasi)](https://www.flickr.com/gp/cacioman/1F0cx0) - [bucato](https://youtu.be/OccDOxmylV0) - [fotoblog](https://www.flickr.com/photos/cacioman)   
+week #16: [letti (o quasi)](https://www.flickr.com/gp/cacioman/1F0cx0) - [bucato](https://youtu.be/OccDOxmylV0) - [fotoblog](https://www.flickr.com/photos/cacioman) - [Intera Rete](https://www.instagram.com/interarete/)   
 week #15: [paesaggio antropizzato](https://www.flickr.com/gp/cacioman/14z0bC)      
 week #14: [windows set](https://www.flickr.com/gp/cacioman/M6z824)   
-          
-[**Intera Rete**](https://www.instagram.com/interarete/): incontri casuali, discorsi origliati, fraintendimenti vari e altre cose così sul mio tragitto casa-lavoro.
 
 <!---  
 
