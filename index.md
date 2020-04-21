@@ -8,6 +8,7 @@ week #16: [letti (o quasi)](https://www.flickr.com/gp/cacioman/1F0cx0) - [bucato
 week #15: [paesaggio antropizzato](https://www.flickr.com/gp/cacioman/14z0bC)      
 week #14: [windows set](https://www.flickr.com/gp/cacioman/M6z824)   
           
+La racolta completa delle foto e delle storie di **Intera Rete** la sto mettendo un po' alla volta su [INstragram]( https://www.instagram.com/interarete/), seguitelo.
 
 <!---  
 
