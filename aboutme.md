@@ -7,7 +7,7 @@ Vivo a Frascati, lavoro a Roma, milite esente, patente munito (ma preferisco i m
 
 Il mio blog è [**vedo gente, faccio code**](/index.md)  dove pubblico microstorie inconcludenti, foto fatte male, video insulsi e altre cose così capitate andando in giro. Per rimanere aggiornato puoi usare [twitter](https://twitter.com/cacioman), [telegram](https://t.me/cacioman), [instagram](https://www.instagram.com/cacioman63), [flickr](https://flickr.com/cacioman), [facebook](https://fb.me/VedoGenteFaccioCode), [wordpress](https://cacioman.wordpress.com/), [blogger](https://cacioman.blogspot.com/), [tumblr](https://cacioman.tumblr.com/) oppure iscriverti alla [newsletter](https://tinyletter.com/cacioman).  
 
-Su Instagram sto pubblicando [**Intera Rete**](https://www.instagram.com/interarete/) (cronahe metropolitane).
+Su Instagram sto pubblicando "[Intera Rete](https://www.instagram.com/interarete/) (cronahe metropolitane)" in comodi fasccoli settimanali, dateci un'occhiata.
 	
 ---    
 [**cacioman@gmail.com**](mailto::cacioman@gmail.com)  
