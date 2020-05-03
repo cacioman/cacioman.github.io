@@ -1,13 +1,12 @@
 # about me  
 
-[![](https://drive.google.com/uc?id=1VekJ5JJnSFQMeIHPGnMwSwZpmuSSB6Zu "MetroB")](/index.md)  
+[![](https://drive.google.com/uc?id=1VekJ5JJnSFQMeIHPGnMwSwZpmuSSB6Zu "MetroB")](https://tinyletter.com/cacioman/archive)  
   
-Claudio Gatti: nato a Roma il 3/6/63, coniugato, due figli.  
-Vivo a Frascati, lavoro a Roma, milite esente, patente munito (ma preferisco i mezzi), buonista.  
+Claudio Gatti: nato a Roma il 3/6/63, coniugato, due figli, vivo a Frascati e lavoro a Roma. Politicamente: buonista.
+Pubblico microstorie inconcludenti, foto fatte male, video insulsi e altre cose così capitate andando in giro.
 
-Il mio blog è [**vedo gente, faccio code**](/index.md)  dove pubblico microstorie inconcludenti, foto fatte male, video insulsi e altre cose così capitate andando in giro. Per rimanere aggiornato puoi usare [twitter](https://twitter.com/cacioman), [telegram](https://t.me/cacioman), [instagram](https://www.instagram.com/cacioman63), [flickr](https://flickr.com/cacioman), [facebook](https://fb.me/VedoGenteFaccioCode), [wordpress](https://cacioman.wordpress.com/), [blogger](https://cacioman.blogspot.com/), [tumblr](https://cacioman.tumblr.com/) oppure iscriverti alla [newsletter](https://tinyletter.com/cacioman).  
-
-Su Instagram sto pubblicando "[Intera Rete](https://www.instagram.com/interarete/) (cronahe metropolitane)" in comodi fascicoli settimanali, dateci un'occhiata.
+Pubblico microstorie inconcludenti, foto fatte male, video insulsi e altre cose così capitate andando in giro.  
+Per rimanere aggiornato puoi usare [twitter](https://twitter.com/cacioman), [telegram](https://t.me/cacioman), [instagram](https://www.instagram.com/cacioman63), [facebook](https://fb.me/VedoGenteFaccioCode), [wordpress](https://cacioman.wordpress.com/), [blogger](https://cacioman.blogspot.com/), [tumblr](https://cacioman.tumblr.com/) oppure iscriverti alla [newsletter](https://tinyletter.com/cacioman).  
 	
 ---    
 [**cacioman@gmail.com**](mailto::cacioman@gmail.com)  
