@@ -1,8 +1,4 @@
-# cacioman blog    
-
 #### microstorie inconcludenti, foto fatte male, video insulsi e altre cose così nei paraggi di casa  
-
-![](/20wk18main.png "Frascati - via Fontana Vecchia")  
 
 ultimi usciti:  
 - 27.apr: [white](https://www.flickr.com/gp/cacioman/12286q) #FotoAlbum
