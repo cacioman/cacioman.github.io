@@ -1,7 +1,7 @@
 #### microstorie inconcludenti, foto fatte male, video insulsi e altre cose così nei paraggi di casa  
 
 ultimi usciti:  
-- 10.mag: [verde](https://ift.tt/3fCgBpN) #FotoALbum  
+- 10.mag: [verde](https://ift.tt/3fCgBpN) #FotoAlbum  
 - 4.mag: [giallo](https://www.flickr.com/gp/cacioman/qVq630) #FotoAlbum  
 - 27.apr: [white](https://www.flickr.com/gp/cacioman/12286q) #FotoAlbum
 - 20.apr: [stranded](https://www.flickr.com/gp/cacioman/988658) #FotoAlbum     
