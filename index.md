@@ -1,6 +1,7 @@
 #### microstorie inconcludenti, foto fatte male, video insulsi e altre cose così nei paraggi di casa  
 
 ultimi usciti:  
+- 23.mag: [ripartenze](/20wk21-ciccio-ripartenze.md) #ScendoIlCane  
 - 10.mag: [verde](https://ift.tt/3fCgBpN) #FotoAlbum  
 - 4.mag: [giallo](https://www.flickr.com/gp/cacioman/qVq630) #FotoAlbum  
 - 27.apr: [white](https://www.flickr.com/gp/cacioman/12286q) #FotoAlbum
