@@ -1,7 +1,7 @@
 # ripartenze  
 #### della serie "scendo Ciccio" [podcasted](https://anchor.fm/cacioman) -  wk#21 2020  
 
-<a data-flickr-embed="true" href="https://www.flickr.com/photos/cacioman/49925988142/in/dateposted-public/" title="#merenda #acasa #pomeriggio #mobile"><img src="https://live.staticflickr.com/65535/49925988142_319654f179_c.jpg" width="800" height="600" alt="#merenda #acasa #pomeriggio #mobile"></a><script async src="//embedr.flickr.com/assets/client-code.js" charset="utf-8"></script>
+<a data-flickr-embed="true" href="https://www.flickr.com/photos/cacioman/49925988142/in/dateposted-public/" title="#merenda #acasa #pomeriggio #mobile"><img src="https://live.staticflickr.com/65535/49925988142_319654f179_c.jpg" width="800" height="600" alt="#merenda #acasa #pomeriggio #mobile"></a>
 
 Ieri pomeriggio in giro c'era già un'aria da liberi tutti: ciclisti attillatissimi e multicolori, coppiette di ogni età, famigliole con passeggino, comitive di ragazzi, signore in tuta e via così.  
 Sullo sterrato dove di solito porto Ciccio (un rettangolo sempre deserto con l'affaccio sul campo sportivo) ad usurparci il posto c'erano tre ragazze sui vent'anni, anche meno. Tutte e tre uguali: pienotte, media altezza, gonna e stivaletti neri. Si facevano delle foto appoggiandosi alla balaustra schiamazzando e ridendo per ogni cosa. Beate loro.     
