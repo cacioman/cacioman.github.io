@@ -5,7 +5,8 @@
 
 Imbrunire, al solito posto trovo una tipa nuova, una sgnora sui sessanta, con al guinzaglio un lupo nero, gigantesco. Io tentenno. Ciccio si irribidisce.  
 Per rassicurarci la signora, con un verso stridulo, dice: "Non si preoccupi. Sono cani buonissimi. Non abbaiano neanche: sono cani dell'Alaska."  
-In effetti il cane dell'Alaska non emette alcun verso, gira la testa e ci punta addosso due occhi glaciali. Sembra un replicante.   Cambiamo zona.  
+In effetti il cane dell'Alaska non emette alcun verso, come u replicante gira la testa lentamente e ci punta addosso i suoi occhi glaciali.  
+Cambiamo zona in tempo.  
 
 ---  
 [about me](https://about.me/cacioman)
