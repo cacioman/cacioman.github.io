@@ -3,11 +3,11 @@
 
 ![](/20wk21scendoilcane2405.png)  
 
-Imbrunire, al solito posto trovo una tipa nuova: una sgnora sui sessanta con al guinzaglio un lupo nero, gigantesco.  
-Io mi blocco subito. Ciccio squittische un "QUAK".  
-La signora però fa ampi gesti per rassicurarci. Con un'assurda voce stridula dice: "Non si preoccupi. Sono cani buonissimi. Guardi, non abbaiano neanche: sono cani dell'Alaska."  
-In effetti il cane dell'Alaska non abbaia mica, gira solo la testa (come fosse quella elettrica di replicante) e ci punta addosso i suoi due occhi glaciali. Lui ha già calcolato tutto: velocità, traiettoria e altezza della mia giugulare. Aspetta solo che gli si dia l'occasione.  
-Non gliela diamo e tiriamo dritto via.  
+Imbrunire, al solito posto trovo una tipa nuova: una signora sui sessanta con al guinzaglio un lupo nero, gigantesco.  
+Io mi blocco subito. Ciccio squittisce un "QUAK".  
+La signora però fa ampi gesti rassicuranti e con un'assurda voce stridula dice: "Non si preoccupi. Sono cani buonissimi. Guardi, non abbaiano neanche: sono cani dell'Alaska!"  
+In effetti il cane dell'Alaska non ci abbaia mica, gira solo la testa (col movimento continuo di un replicante) e ci punta addosso i suoi due occhi glaciali. Ha già calcolato tutto: velocità, traiettoria e altezza della mia giugulare. Aspetta solo che gli si dia l'occasione.  
+Noi ci smaterializziamo.  
 
 ---  
 [about me](https://about.me/cacioman)
