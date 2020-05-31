@@ -1,7 +1,8 @@
 #### microstorie inconcludenti, foto fatte male, video insulsi e altre cose così nei paraggi di casa  
 
 ultimi usciti:  
-- 25.mag: [blu](https://www.flickr.com/gp/cacioman/BJHA29) #FotoAlbum
+- 31.mag: [mutty](https://www.flickr.com/gp/cacioman/rD5cmi) #Archivio #FotoAlbum
+- 25.mag: [blu](https://www.flickr.com/gp/cacioman/BJHA29) #Archivio #FotoAlbum
 - 24.mag: [alaska](https://cacioman.github.io/20wk21-ciccio-alaska.html) #ScendoIlCane  
 - 23.mag: [ripartenze](/20wk21-ciccio-ripartenze.md) #ScendoIlCane  
 - 10.mag: [verde](https://ift.tt/3fCgBpN) #FotoAlbum  
