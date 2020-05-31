@@ -1,5 +1,7 @@
 #### microstorie inconcludenti, foto fatte male, video insulsi e altre cose così nei paraggi di casa  
 
+![](/20wk23main.png "Frascati - viale Vittorio Veneto)
+
 ultimi usciti:  
 - 31.mag: [mutty](https://photos.app.goo.gl/ASaTaPwz5WV9s1Y1A) #Archivio #FotoAlbum
 - 25.mag: [blu](https://www.flickr.com/gp/cacioman/BJHA29) #Archivio #FotoAlbum
