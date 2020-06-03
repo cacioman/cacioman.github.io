@@ -1,5 +1,5 @@
 # alaska
-#### della serie "scendo il cane" [podcasted](https://anchor.fm/cacioman) -  wk#21 2020  
+#### della serie "scendo il cane" -  wk#21 2020  
 
 ![](/20wk21scendoilcane2405.png)  
 
