@@ -1,5 +1,5 @@
 # ripartenze  
-#### della serie "scendo Ciccio" [podcasted](https://anchor.fm/cacioman) -  wk#21 2020  
+#### della serie "scendo Ciccio" - wk#21 2020  
 
 ![](/20wk21scendoilcane2305.png "Frascati")
 
