@@ -3,6 +3,7 @@
 ![](/20wk23main.png "Frascati - viale Vittorio Veneto")
 
 ultimi usciti:  
+- 9.giu: [daddy](https://photos.app.goo.gl/VshEUXTz1JBbDVHMA) #Archivio #FotoAlbum  
 - 31.mag: [mutty](https://photos.app.goo.gl/ASaTaPwz5WV9s1Y1A) #Archivio #FotoAlbum
 - 25.mag: [blu](https://www.flickr.com/gp/cacioman/BJHA29) #Archivio #FotoAlbum
 - 24.mag: [alaska](https://cacioman.github.io/20wk21-ciccio-alaska.html) #ScendoilCane  
