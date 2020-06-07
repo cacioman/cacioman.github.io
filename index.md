@@ -1,6 +1,6 @@
 #### microstorie inconcludenti, foto fatte male, video insulsi e altre cose così nei paraggi di casa  
 
-![](/20wk23main.png "Frascati - viale Vittorio Veneto")
+![](/20wk25main.png "Roma - parco degli Acquedotti")
 
 ultimi usciti:  
 - 9.giu: [daddy](https://photos.app.goo.gl/VshEUXTz1JBbDVHMA) #Archivio #FotoAlbum  
