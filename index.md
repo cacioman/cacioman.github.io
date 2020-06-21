@@ -1,8 +1,9 @@
 #### microstorie inconcludenti, foto fatte male, video insulsi e altre cose così nei paraggi di casa  
 
-![](/20wk25bmain.png "Roma - parco degli Acquedotti")
+![](/20wk26main.png "Roma - parco degli Acquedotti")
 
 ultimi usciti:  
+- 21.giu: [muzik](https://photos.app.goo.gl/Zi62bDSct31pbjXA8) #Archivio #FotoAlbum   
 - 15.giu: [gambe](https://photos.app.goo.gl/6ZLmX2RLdWjbSffn7) #Archivio #FotoAlbum  
 - 9.giu: [daddy](https://photos.app.goo.gl/VshEUXTz1JBbDVHMA) #Archivio #FotoAlbum  
 - 31.mag: [mutty](https://photos.app.goo.gl/ASaTaPwz5WV9s1Y1A) #Archivio #FotoAlbum
