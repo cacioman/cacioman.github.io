@@ -11,7 +11,7 @@ ultimi usciti:
 - 23.mag: [ripartenze](/20wk21-ciccio-ripartenze.md) #ScendoilCane  
 
 ---    
-[fotoblog](https://www.flickr.com/photos/cacioman) - [shared post](https://t.me/cacioshared) - [intera rete](https://www.instagram.com/InteraRete/) - [about me](https://about.me/cacioman)  
+[fotoblog](https://www.flickr.com/photos/cacioman) - [shared post](https://t.me/cacioshared) - [intera rete](https://cacioman.github.io/interarete.html) - [about me](https://about.me/cacioman)  
 
 <!---  
 - 25.mag: [blu](https://www.flickr.com/gp/cacioman/BJHA29) #Archivio #FotoAlbum
