@@ -3,6 +3,8 @@
 
 [![](https://cacioman.github.io/20wk26-interarete-faccione.png)](https://www.instagram.com/InteraRete/) 
 
+disponbile su: [word](https://docs.google.com/document/d/1PV7WbbdWiHOb4LGqKyP_v74guc3X_x8mVvlGyGiRBqY/edit?usp=sharing) - [html](https://docs.google.com/document/d/e/2PACX-1vQRwiANaom26EhtbYZtutYeL-2fAjymjrPLMVab8JFhXCJS-6tZhbRlzBT5uN64oruOdjbD5KI3Oofl/pub) -  [instagram](https://www.instagram.com/InteraRete/) e [faceook](https://www.facebook.com/InteraReteFB) - 
+
 **aprile 2020**  
 Vivo a Frascati e lavoro a Roma (zona EUR).  
 Da almeno una decina di anni faccio questo percorso con i mezzi pubblici, andata e ritorno.   
@@ -11,7 +13,7 @@ Ora che siamo bloccati a casa per il COVID-19 e sto mettendo insieme tutto il ma
 Vediamo.
 
 **luglio 2020**  
-Sto mettendo "Intera Rete" a puntate su [**instagram**](https://www.instagram.com/InteraRete/) e [faceook](https://www.facebook.com/InteraReteFB). Entro l'estate pubblico tutte le storie.  
+Sto mettendo "Intera Rete" a puntate su [**instagram**](https://www.instagram.com/InteraRete/) e [**faceook**](https://www.facebook.com/InteraReteFB). Entro l'estate pubblico tutte le storie.  
 Intanto due amici (Federico e Andrea) mi aiutano a farlo diventare un libro vero (con le pagine e  tutto). L'idea sarebbe di usare il ricavato per aiutare altri viaggiatori metropolitani.  
 Stay Tuned!  
 
