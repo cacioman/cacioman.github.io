@@ -11,7 +11,7 @@ Ora che siamo bloccati a casa per il COVID-19 e sto mettendo insieme tutto il ma
 Vediamo.
 
 **luglio 2020**  
-Sto mettendo "Intera Rete" a puntate su [**instagram**](https://www.instagram.com/InteraRete/). Entro l'estate pubblico tutte le storie.  
+Sto mettendo "Intera Rete" a puntate su [**instagram**](https://www.instagram.com/InteraRete/) e [faceook](https://www.facebook.com/InteraReteFB). Entro l'estate pubblico tutte le storie.  
 Intanto due amici (Federico e Andrea) mi aiutano a farlo diventare un libro vero (con le pagine e  tutto). L'idea sarebbe di usare il ricavato per aiutare altri viaggiatori metropolitani.  
 Stay Tuned!  
 
