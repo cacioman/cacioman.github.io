@@ -1,8 +1,7 @@
 # Intera Rete  
 #### cronache metropolitane  
 
-[![](https://cacioman.github.io/20wk26-interarete-faccione.png)](https://www.instagram.com/InteraRete/) 
-
+[![](https://cacioman.github.io/20wk29-interarete-copertina.png)](https://www.instagram.com/InteraRete/) 
 
 **aprile 2020**  
 Vivo a Frascati e lavoro a Roma (zona EUR).  
