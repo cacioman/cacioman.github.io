@@ -16,7 +16,7 @@ Intanto due amici (Federico e Andrea) mi aiutano a farlo diventare un libro vero
 Stay Tuned!  
 
 **luglio 2020 (metà)**  
-Ho parlato con i ragazzi di [Baobab Eperience](https://baobabexperience.org/) un'associazione noprofit romana che, tra Roma Termini e Roma Tiburtina, lavora per l'accoglienza di migranti e non. A quelli di Baobab Eperience il progetto "Intera Rete" piace e insomma siamo rimasti che i proventi del libro contribuiranno alla raccolta fondi dell'associazione.  
+Ho parlato con i ragazzi di [Baobab Eperience](https://baobabexperience.org/) (un'associazione noprofit romana che, tra Roma Termini e Roma Tiburtina, lavora per l'accoglienza di migranti e non) e a loro il progetto "Intera Rete" piace molto. Siamo rimasti che i proventi della vendita del "Intera Rete" contribuiranno alla loro raccolta fondi.  
 Daje !
 
 --- 
