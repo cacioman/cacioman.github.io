@@ -22,7 +22,7 @@ Daje !
 --- 
 #### link utili:  
 
-Intera Rete per ora è disponbile solo in forma elettronica. Ma stiamo lavorando per farne un po' di copie in forma di libro (vero).
+Intera Rete per ora è disponbile solo in forma elettronica. Ma stiamo lavorando per farne un po' di copie in forma di libro (vero).  
 Lo trovate su: [google drive](https://docs.google.com/document/d/1PV7WbbdWiHOb4LGqKyP_v74guc3X_x8mVvlGyGiRBqY/edit?usp=sharing) - [web page](https://docs.google.com/document/d/e/2PACX-1vQRwiANaom26EhtbYZtutYeL-2fAjymjrPLMVab8JFhXCJS-6tZhbRlzBT5uN64oruOdjbD5KI3Oofl/pub) -  [**instagram**](https://www.instagram.com/InteraRete/) - [**facebook**](https://www.facebook.com/InteraReteFB)  
 
 Ci sono poi anche le letture di [Daniela Margherita](https://sites.google.com/view/danielamargherita). Le ho messe su un canale YouTube dal titolo  [**Allontanarsi dalla linea gialla**](https://www.youtube.com/channel/UC8B2bq3VdPtSeLzryWwNAlQ) .   
