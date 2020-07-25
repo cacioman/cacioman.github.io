@@ -17,18 +17,17 @@ Intanto due amici (Federico e Andrea) mi aiutano a farlo diventare un libro vero
 Stay Tuned!  
 
 **luglio 2020 (metà)**  
-Ho parlato con [Baobab Eperience](https://baobabexperience.org/) un'associazione romana che in zona Stazione Tiburtina copre il buco istituzionale aiutando per l'accoglienza di migranti e non. Il progetto gli piace e insomma con i proventi del libro libro si potrà contribuire alle loro attivtà.
+Ho parlato con [Baobab Eperience](https://baobabexperience.org/) un'associazione romana che in zona Stazione Tiburtina copre il buco istituzionale aiutando per l'accoglienza di migranti e non. Il progetto gli piace e insomma con i proventi del libro libro si potrà contribuire alle loro attivtà.  
 Daje !
 
 --- 
+#### link utili  
 
-Intera Rete è disponbile su: [google drive](https://docs.google.com/document/d/1PV7WbbdWiHOb4LGqKyP_v74guc3X_x8mVvlGyGiRBqY/edit?usp=sharing) - [web page](https://docs.google.com/document/d/e/2PACX-1vQRwiANaom26EhtbYZtutYeL-2fAjymjrPLMVab8JFhXCJS-6tZhbRlzBT5uN64oruOdjbD5KI3Oofl/pub) -  [**instagram**](https://www.instagram.com/InteraRete/) - [**facebook**](https://www.facebook.com/InteraReteFB)  
+Intera Rete è disponbile solo in forma elettronica. Lo trovate su: [google drive](https://docs.google.com/document/d/1PV7WbbdWiHOb4LGqKyP_v74guc3X_x8mVvlGyGiRBqY/edit?usp=sharing) - [web page](https://docs.google.com/document/d/e/2PACX-1vQRwiANaom26EhtbYZtutYeL-2fAjymjrPLMVab8JFhXCJS-6tZhbRlzBT5uN64oruOdjbD5KI3Oofl/pub) -  [**instagram**](https://www.instagram.com/InteraRete/) - [**facebook**](https://www.facebook.com/InteraReteFB)  
 
-Quasi tutte le foto che ho fatto sono su Google Photos nell'album [**casa lavoro (A/R) 2010-2020**](https://photos.app.goo.gl/px1VuYtnZLgSsTGAA)  
+Se cercate altre foto le trovate nell'album Google Photos ["**casa-lavoro (A/R) 2010-2020**"](https://photos.app.goo.gl/px1VuYtnZLgSsTGAA).  
 
-Ci sono poi le letture che [Daniela Margherita](https://sites.google.com/view/danielamargherita) mi ha regalato e che ho messo su YouTube.  
-Il canale si chiama [**Allontanarsi dalla linea gialla**](https://www.youtube.com/channel/UC8B2bq3VdPtSeLzryWwNAlQ)    
-
+Ci sono poi anche le letture di [Daniela Margherita](https://sites.google.com/view/danielamargherita). Sono sul canale YouTube  [**Allontanarsi dalla linea gialla**](https://www.youtube.com/channel/UC8B2bq3VdPtSeLzryWwNAlQ) .   
 
 
 ---    
