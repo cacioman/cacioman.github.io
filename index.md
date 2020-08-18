@@ -1,23 +1,20 @@
 #### microstorie inconcludenti, foto fatte male, video insulsi e altre cose così nei paraggi di casa  
 
-![](/20wk26main.png "Roma - parco degli Acquedotti")
+![](https://live.staticflickr.com/65535/50147666043_ec78e5b5ec.jpg "San Sepolcro - amuchinia ")
 
-ultimi usciti:  
-- 21.giu: [muzik](https://photos.app.goo.gl/Zi62bDSct31pbjXA8) #Archivio #FotoAlbum   
-- 15.giu: [gambe](https://photos.app.goo.gl/6ZLmX2RLdWjbSffn7) #Archivio #FotoAlbum  
-- 9.giu: [daddy](https://photos.app.goo.gl/VshEUXTz1JBbDVHMA) #Archivio #FotoAlbum  
-- 31.mag: [mutty](https://photos.app.goo.gl/ASaTaPwz5WV9s1Y1A) #Archivio #FotoAlbum
-- 24.mag: [alaska](https://cacioman.github.io/20wk21-ciccio-alaska.html) #ScendoilCane  
-- 23.mag: [ripartenze](/20wk21-ciccio-ripartenze.md) #ScendoilCane  
+post :  
+- 24.mag [alaska](https://cacioman.github.io/20wk21-ciccio-alaska.html)  
+- 23.mag [ripartenze](/20wk21-ciccio-ripartenze.md)   
+
+raccolte :  
+- [intera rete](https://cacioman.github.io/interarete.html): di quando ci si incalcava spensieratamente sui mezzi pubblici  
+- [fotoblog](https://www.flickr.com/photos/cacioman): foto mano mano che le faccio
+- [video insulsi](https://www.youtube.com/channel/UCDoy-lXaaJVugJ9bLVSXGJw)
+- [shared post](https://t.me/cacioshared)  
 
 ---    
-[fotoblog](https://www.flickr.com/photos/cacioman) - [shared post](https://t.me/cacioshared) - [intera rete](https://cacioman.github.io/interarete.html) - [about me](https://about.me/cacioman)  
+[about me](https://about.me/cacioman)  
 
 <!---  
-- 25.mag: [blu](https://www.flickr.com/gp/cacioman/BJHA29) #Archivio #FotoAlbum
-- 10.mag: [verde](https://ift.tt/3fCgBpN) #Archivio #FotoAlbum  
-- 4.mag: [giallo](https://www.flickr.com/gp/cacioman/qVq630) #Archivio #FotoAlbum  
-- 27.apr: [white](https://www.flickr.com/gp/cacioman/12286q) #Archivio #FotoAlbum- 20.apr: [stranded](https://www.flickr.com/gp/cacioman/988658) #FotoAlbum     
-- 17.apr: [bucato](https://youtu.be/OccDOxmylV0) #VideoInsulso  
-- 13.apr: [letti (o quasi)](https://www.flickr.com/gp/cacioman/1F0cx0) #FotoAlbum  
+
 --->  
