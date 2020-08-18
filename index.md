@@ -1,6 +1,6 @@
 #### microstorie inconcludenti, foto fatte male, video insulsi e altre cose così nei paraggi di casa  
 
-![](https://live.staticflickr.com/65535/50147666043_ec78e5b5ec.jpg "San Sepolcro - amuchinia ")
+![](/20wk34main.png "San Sepolcro - amuchinia ")
 
 post :  
 - 24.mag [alaska](https://cacioman.github.io/20wk21-ciccio-alaska.html)  
