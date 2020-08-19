@@ -5,14 +5,12 @@
 **i nuovi post** :  
 - MAN AT WORK 
 
-**raccolte sedimentate** :  
+**le raccolte** :  
 - [intera rete](https://cacioman.github.io/interarete.html): di quando ci si incalcava spensieratamente sui mezzi pubblici  
 - [scendo il cane](): coming soon  
 - [note a margine](): sta per uscire  
 - [la settimana](): come sopra  
 - [B/W photos](): programma intimista da definire  
-
-**in aggiornamento** :  
 - [fotoblog](https://www.flickr.com/photos/cacioman): la strisciata delle foto che faccio (e dopo un po' cancello)  
 - [video insulsi](https://www.youtube.com/channel/UCDoy-lXaaJVugJ9bLVSXGJw): video in cui succede veramente poco  
 - [tanto livore per nulla](https://anchor.fm/cacioman63): un podcast ancora tutto da fare  
