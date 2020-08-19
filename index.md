@@ -10,7 +10,6 @@
 - [intera rete](https://cacioman.github.io/interarete.html): di quando ci si incalcava spensieratamente sui mezzi pubblici  
 - [fotoblog](https://www.flickr.com/photos/cacioman): la strisciata delle foto che faccio (e dopo un po' cancello)  
 - [video insulsi](https://www.youtube.com/channel/UCDoy-lXaaJVugJ9bLVSXGJw): video in cui succede veramente poco  
-- [tanto livore per nulla](https://anchor.fm/cacioman63): un podcast ancora tutto da fare  
 - [shared post](https://t.me/cacioshared): cose trovate in rete e ripubblicate su Telegram    
 
 **comig soon** :  
@@ -18,6 +17,7 @@
 - note a margine  
 - la settimana  
 - evocative B/W photos 
+- [tanto livore per nulla](https://anchor.fm/cacioman63): un podcast ancora tutto da fare  
 
 ---    
 [about me](https://about.me/cacioman)  
