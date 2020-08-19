@@ -1,4 +1,4 @@
-#### microstorie inconcludenti, foto fatte male, video insulsi e altre cose così nei paraggi di casa  
+#### microstorie inconcludenti, foto rimediate, video insulsi e altre cose così nei paraggi di casa  
 
 ![](/20wk34main.png "San Sepolcro - amuchinia ")
 
