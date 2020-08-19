@@ -2,8 +2,9 @@
 
 ![](/20wk34main.png "San Sepolcro - amuchinia ")
 
-**i nuovi post** :  
-- MAN AT WORK 
+**ultimi post** :  
+- 24.mag [alaska](https://cacioman.github.io/20wk21-ciccio-alaska.html)  
+- 23.mag [ripartenze](/20wk21-ciccio-ripartenze.md)  
 
 **le raccolte** :  
 - [intera rete](https://cacioman.github.io/interarete.html): di quando ci si incalcava spensieratamente sui mezzi pubblici  
@@ -12,7 +13,7 @@
 - [tanto livore per nulla](https://anchor.fm/cacioman63): un podcast ancora tutto da fare  
 - [shared post](https://t.me/cacioshared): cose trovate in rete e ripubblicate su Telegram    
 
-**comig soon**  
+**comig soon** :  
 - scendo il cane 
 - note a margine  
 - la settimana  
@@ -22,6 +23,4 @@
 [about me](https://about.me/cacioman)  
 
 <!---  
-- 24.mag [alaska](https://cacioman.github.io/20wk21-ciccio-alaska.html)  
-- 23.mag [ripartenze](/20wk21-ciccio-ripartenze.md)  
 --->  
