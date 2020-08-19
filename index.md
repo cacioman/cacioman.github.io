@@ -18,7 +18,7 @@
 - la settimana  
 - evocative B/W photos 
 - [tanto livore per nulla](https://anchor.fm/cacioman63): un podcast ancora tutto da fare  
-- [vedo gente, faccio code](tinyletter.com/cacioman/archive): la newsletter settimanale dei fedelissimi  
+- [vedo gente, faccio code](https://tinyletter.com/cacioman/archive): la newsletter settimanale dei fedelissimi  
 
 ---    
 [about me](https://about.me/cacioman)  
