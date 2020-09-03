@@ -2,7 +2,7 @@
 # sintesi  
 #### della serie "scendo Ciccio" - wk#35 2020  
 
-![](/20wk35scendoilcane0309.png "Frascati")
+![](/20wk36scendoilcane0309.png "Frascati, Parco della Vittoria - mascherine")
 
 Alle mascherine in terra io ci faccio poco caso. Ciccio invece ne trova un sacco. Neanche le annusa: ci piscia subito sopra (magari solo due gocce, furtivamente, prima che lo strattoni via).  
 Di mascherine in terra ne parlavano preoccupati ieri mattina i due del rosario. Sono quelli che incrociavo nelle sere di *lockdown*: marciavano ossessivamente lungo tutto il marciapiede, salmodianti, fitti fitti, tra crocefisso e ingresso del *cocktail bar* (un posto all’aperto, da movida estiva ma all’epoca chiuso e con quell’ulteriore effetto melanconico tipo “mare d’inverno”). 
