@@ -1,6 +1,6 @@
 
 # sintesi  
-#### della serie "scendo Ciccio" - wk#35 2020  
+#### della serie "scendo Ciccio" - wk#36 2020  
 
 ![](/20wk36scendoilcane0309.png "Frascati, Parco della Vittoria - mascherine")
 
