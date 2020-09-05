@@ -6,7 +6,6 @@
 
 [**ebook**](https://docs.google.com/document/d/1PV7WbbdWiHOb4LGqKyP_v74guc3X_x8mVvlGyGiRBqY/edit?usp=sharing) - [web](https://docs.google.com/document/d/e/2PACX-1vQRwiANaom26EhtbYZtutYeL-2fAjymjrPLMVab8JFhXCJS-6tZhbRlzBT5uN64oruOdjbD5KI3Oofl/pub) -  [**instagram**](https://www.instagram.com/InteraRete/) - [facebook](https://www.facebook.com/InteraReteFB) - [video](https://www.youtube.com/channel/UC8B2bq3VdPtSeLzryWwNAlQ) - [foto](https://photos.app.goo.gl/px1VuYtnZLgSsTGAA)  
  
----  
 
 **aprile 2020**  
 Vivo a Frascati e lavoro a Roma (zona EUR).  
