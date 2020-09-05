@@ -1,7 +1,9 @@
 # Intera Rete  
 #### cronache metropolitane  
 
-[![](https://cacioman.github.io/20wk29-interarete-copertina.png)](https://www.instagram.com/InteraRete/) 
+[e-book](https://docs.google.com/document/d/1PV7WbbdWiHOb4LGqKyP_v74guc3X_x8mVvlGyGiRBqY/edit?usp=sharing) - [web](https://docs.google.com/document/d/e/2PACX-1vQRwiANaom26EhtbYZtutYeL-2fAjymjrPLMVab8JFhXCJS-6tZhbRlzBT5uN64oruOdjbD5KI3Oofl/pub) -  [instagram](https://www.instagram.com/InteraRete/) - [facebook](https://www.facebook.com/InteraReteFB) - [video](https://www.youtube.com/channel/UC8B2bq3VdPtSeLzryWwNAlQ) - [foto](https://photos.app.goo.gl/px1VuYtnZLgSsTGAA)  
+
+<img src="/20wk29-interarete-copertina.png" alt="coming soon" width="500" >  
 
 **aprile 2020**  
 Vivo a Frascati e lavoro a Roma (zona EUR).  
