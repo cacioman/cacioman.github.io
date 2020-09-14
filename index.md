@@ -5,13 +5,13 @@
 **ultimi post** :  
 - ci sto lavorando  
 
-!---  
+<!---
 
 - 3.set [sintesi](https://cacioman.github.io/20wk36-ciccio-sintesi.html): di scongiuri ed equiliri interiori  
 - 24.mag [alaska](https://cacioman.github.io/20wk21-ciccio-alaska.html): di incontri con cani mansueti   
 - 23.mag [ripartenze](/20wk21-ciccio-ripartenze.md): di giri alternativi che poi sono sempre gli stessi  
 
----!  
+--->  
 
 **le raccolte** :  
 - [intera rete](https://cacioman.github.io/interarete.html): di quando ci si incalcava spensieratamente sui mezzi pubblici  
