@@ -1,5 +1,5 @@
 # lavori in corso 
-#### coming soon (speroo)  
+#### coming soon (spero)  
 
 ![](https://live.staticflickr.com/65535/50383767437_66438be537.jpg "Frascati, stazione di")
 
