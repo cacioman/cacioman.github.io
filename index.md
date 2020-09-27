@@ -1,6 +1,6 @@
 
 
-- 27 settembre: sul perché andare fino a Bari a vedere [Medea, Eracle, Filottete e gli altri del mucchio](  https://cacioman.github.io/20wk38-medeaperstrada-lettioquasi.html)    
+- sul perché andare fino a Bari a vedere [Medea, Eracle, Filottete e gli altri del mucchio](  https://cacioman.github.io/20wk38-medeaperstrada-lettioquasi.html) [27.set.20]    
 
 
 ---    
