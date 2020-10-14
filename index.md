@@ -1,10 +1,11 @@
 
 
+- di [meste serate](https://youtu.be/jiCCzEWgpms) tuscolane in villa a portare il cane a pisciar (e più non dimandar) [14.ott.20]  
 - sul perché andare fino a Bari a vedere [Medea, Eracle, Filottete e gli altri del mucchio](  https://cacioman.github.io/20wk38-medeaperstrada-lettioquasi.html) [27.set.20]    
 
 
 ---    
-[about me](https://about.me/cacioman) - [intera rete](https://cacioman.github.io/interarete.html) - [fotoblog](https://www.flickr.com/photos/cacioman/) - [video insulsi](https://www.youtube.com/c/ClaudioGatti44) - [shared post](https://t.me/cacioshared) - [newsletter](https://tinyletter.com/cacioman) 
+[about me](https://about.me/cacioman) - [intera rete](https://cacioman.github.io/interarete.html) - [fotoblog](https://www.flickr.com/photos/cacioman/) - [video insulsi](https://www.youtube.com/c/ClaudioGatti44) - [shared post](https://t.me/cacioshared) - [newsletter](https://tinyletter.com/cacioman/archive) 
 
 <!---  
 
