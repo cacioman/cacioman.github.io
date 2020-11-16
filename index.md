@@ -1,5 +1,5 @@
 
-- [vediamo la luce](https://cacioman.github.io/news-interarete-16nov20.html): pare che a inzio dicembre riusciamo a stampate "Intera Rete (cronache metropolitane)", le prenotazioni sono aperte! [16.nov.20] 
+- [vediamo la luce](https://cacioman.github.io/news-interarete-16nov20.html): pare che a inizio dicembre riusciamo a stampate "Intera Rete (cronache metropolitane)", le prenotazioni sono aperte! [16.nov.20] 
 - di [meste serate](https://youtu.be/jiCCzEWgpms) tuscolane in villa a portare il cane a pisciar (e più non dimandar) [14.ott.20]  
 - sul perché andare fino a Bari a vedere [Medea, Eracle, Filottete e gli altri del mucchio](  https://cacioman.github.io/20wk38-medeaperstrada-lettioquasi.html) [27.set.20]    
 
