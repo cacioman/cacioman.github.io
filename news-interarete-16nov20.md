@@ -10,11 +10,11 @@ Per l'inizio di dicembre dovremmo avere le copie stampate. Ne faremo centocinqua
 Prezzo 
 - 15 euro: una copia + preziosa dedica autografa dell'autore (genere "con grande stima e affetto")  
 - 60 euro: cinque copie + raffinata foto analogica stampata con le mie manone su carta RC 18x24 ([scegli qui](https://www.flickr.com/gp/cacioman/sb6050) quale foto preferisci)  
-- 100 euro: dieci copie + un vostro ritratto che vi faccio io comodamente a casa vostra con la mia fantastica Hasselblad 500 RC (e ve lo stampo pure)  
+- 100 euro: dieci copie + un vostro foto-ritratto veramente artistico che vi faccio io con la mia fichissima Hasselblad    
 
 Consegna 
-- in zona Castelli e Roma SUD: consegna a mano (ditemi voi dove e come)  
-- fuori dal raccordo anulare, isole comprese, spedisco con Poste Italiane. Per le spese di spedizione, fate voi.  
+- in zona Castelli e Roma SUD: ve lo porto io a mano (ditemi voi dove e come)  
+- fuori dal raccordo anulare, isole comprese, spedisco con Poste  Italiane (per le spese di spedizione fate voi)  
 
 Coperti i costi di realizzazione, il resto lo mando agli amici di [Baobab Eperience](https://baobabexperience.org/) di Roma. Dovremmo stare sui quattro-cinquecento euro.  
 
