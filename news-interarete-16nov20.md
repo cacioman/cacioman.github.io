@@ -4,7 +4,7 @@
 
 ![](https://live.staticflickr.com/65535/50342340017_b4061393e8_c.jpg "prototipo")  
 
-Tra un tampone negativo e l'altro, tra una quarantena e uno spavento, si è rimessa in moto la gioiosa macchina da stampa di "Intera Rete (cronache metropolitae)"!  
+Tra un tampone negativo e l'altro, tra una quarantena e uno spavento, si è rimessa in moto la gioiosa macchina da stampa di "[Intera Rete (cronache metropolitane)](https://cacioman.github.io/interarete.html)"!  
 Per l'inizio di dicembre dovremmo avere le copie stampate. Ne faremo centocinquanta, tutte numerate (perché dice che fa più fico).  
 
 Prezzo 
