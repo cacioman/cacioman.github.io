@@ -13,8 +13,8 @@ Prezzo
 - 100 euro: dieci copie + un vostro foto-ritratto veramente artistico che vi faccio io con la mia fichissima Hasselblad    
 
 Consegna 
-- in zona Castelli e Roma SUD: ve lo porto io a mano (ditemi voi dove e come)  
-- fuori dal raccordo anulare, isole comprese, spedisco con Poste  Italiane (per le spese di spedizione fate voi)  
+- **dentro al raccordo** (ma anche fino ai Castelli Romani): ve lo porto io a mano, pagamenti *cash*  
+- **fuori dal raccordo anulare** (isole comprese): spedisco con Poste  Italiane (per le spese di spedizione fate voi), pagamenti IBAN o [PayPal](https://www.paypal.me/ClaudioGatti)    
 
 Coperti i costi di realizzazione, il resto lo mando agli amici di [Baobab Eperience](https://baobabexperience.org/) di Roma. Dovremmo stare sui quattro-cinquecento euro.  
 
