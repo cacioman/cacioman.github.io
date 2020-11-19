@@ -14,7 +14,7 @@ Prezzo
 
 Consegna 
 - **dentro al raccordo** (ma anche fino ai Castelli Romani): ve lo porto io a mano, pagamenti *cash*  
-- **fuori dal raccordo anulare** (isole comprese): spedisco con Poste  Italiane (per le spese di spedizione fate voi), pagamenti IBAN o [PayPal](https://www.paypal.me/ClaudioGatti)    
+- **fuori dal raccordo anulare** (isole comprese): spedisco con Poste  Italiane "piego libri", pagamenti IBAN o [PayPal](https://www.paypal.me/ClaudioGatti)    
 
 Coperti i costi di realizzazione, il resto lo mando agli amici di [Baobab Eperience](https://baobabexperience.org/) di Roma. Dovremmo stare sui quattro-cinquecento euro.  
 
