@@ -10,7 +10,8 @@ Controllate?
 Controlliamo, controlliamo...  
 No, gli mancava nessuno, e meno male: i pistoleros avevano appena trovato un cadavere spiaccicato giù di sotto al cortile e adesso andavano reparto per reparto per vedere da dove fosse piovuto. Arrivava dal quinto piano,  urologia, era il povero Monicelli.  
 Che fosse urologia me l'ha ricordato mia madre la scorsa settimana. Anche lei s'è operata al San Giovanni e con altre signore l'hanno messa, forse per via del COVID, proprio a urologia, quinto piano.  
-Dice che si sono trovate anche bene, che era solo difficile cambiare l'aria in stanza (che col COVID è meglio farlo spesso). Le finestre infatti erano strane come bloccate, con solo un spiraglietto in alto. Le hanno fatte così dopo che Monicelli s'è buttato giù di sotto (che per mia madre rimane una bella morte, rapida almeno).  
+Dice che si sono trovate anche bene, che era solo difficile cambiare l'aria in stanza (che col COVID è meglio farlo spesso). Le finestre infatti erano strane, come bloccate, con solo un spiraglietto in alto.  
+Le hanno fatte così dopo che Monicelli s'è buttato giù di sotto (che per mia madre rimane una bella morte, rapida almeno).  
   
 
 ---    
