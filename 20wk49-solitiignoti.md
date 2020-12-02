@@ -1,4 +1,4 @@
-# soliti igoti 
+# soliti ignoti 
 #### della serie "a posto così" - wk49 2020   
 
 ![](https://live.staticflickr.com/65535/50671934768_33e220bf2a_c.jpg "Frascati, affaccio")  
