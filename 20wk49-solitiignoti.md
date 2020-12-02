@@ -4,13 +4,13 @@
 ![](https://live.staticflickr.com/65535/50671934768_33e220bf2a_c.jpg "Frascati, affaccio")  
 
 Adesso sono dieci anni dalla morte di Mario Monicelli, il grande regista cinematografico.  
-Quando è morto Monicelli stava ricoverato al S an Giovanni e proprio quella notte l'amico Bizzo c'aveva il turno (ma in un altro reparto, forse medicina uomini, al terzo o quarto piano del corpaccione centrale del San Giovanni).   
+Quando è morto Monicelli stava ricoverato al San Giovanni dove proprio quella notte l'amico Bizzo c'aveva il turno (ma in un altro reparto, forse medicina uomini, al terzo o quarto piano del corpaccione centrale).   
 Bizzo dice che a tarda ora, si sono presentati al reparto quelli della vigilanza. Facevano i vaghi: "non è che gnente gnente ve siete persi qualcuno?". "No, no" dice "a noi non ce manca nessuno".  
 Controllate?  
-Controlliamo, controlliamo...  
-No, no, gli mancava nessuno, dice Bizzo, e meno male che è andata così: i pistoleros avevano appena trovato un cadavere spiaccicato giù sotto al cortile e adesso andavano reparto per reparto per vedere da dove era piovuto. Era il povero Monicelli che s'era buttato giù dal quinto piano di urologia.  
-Che fosse urologia me l'ha confermato mia madre la scorsa settimana. S'è operata, anche lei al San Giovanni e l'hanno messa con altre signore, a urologia, forse causa COVID.  
-Dice che si sono trovate anche bene, che era solo difficile cambiare l'aria in stanza (che col COVID è meglio farlo spesso). Le finestre erano strane: come bloccate, con solo un spiraglietto in alto. Stanno così da quando Monicelli s'è buttato giù di sotto (che per mia madre rimane una bella morte, rapida almeno).  
+E controlliamo, controlliamo...  
+No, gli mancava nessuno, e meno male: i pistoleros avevano appena trovato un cadavere spiaccicato giù di sotto al cortile e adesso andavano reparto per reparto per vedere da dove fosse piovuto. Arrivava dal quinto piano,  urologia, era il povero Monicelli.  
+Che fosse urologia me l'ha ricordato mia madre la scorsa settimana. Anche lei s'è operata al San Giovanni e l'hanno messa con altre signore proprio a urologia, quinto piano, forse per via del COVID.  
+Dice che si sono trovate anche bene, che era solo difficile cambiare l'aria in stanza (che col COVID è meglio farlo spesso). Le finestre infatti erano strane come bloccate, con solo un spiraglietto in alto. Le hanno fatte così dopo che Monicelli s'è buttato giù di sotto (che per mia madre rimane una bella morte, rapida almeno).  
   
 
 ---    
