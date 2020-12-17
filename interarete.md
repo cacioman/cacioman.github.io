@@ -13,7 +13,10 @@ Vediamo.
 
 [**ebook**](https://docs.google.com/document/d/1PV7WbbdWiHOb4LGqKyP_v74guc3X_x8mVvlGyGiRBqY/edit?usp=sharing) - [web](https://docs.google.com/document/d/e/2PACX-1vQRwiANaom26EhtbYZtutYeL-2fAjymjrPLMVab8JFhXCJS-6tZhbRlzBT5uN64oruOdjbD5KI3Oofl/pub) -  [**instagram**](https://www.instagram.com/InteraRete/) - [facebook](https://www.facebook.com/InteraReteFB) - [video](https://www.youtube.com/channel/UC8B2bq3VdPtSeLzryWwNAlQ) - [foto](https://photos.app.goo.gl/px1VuYtnZLgSsTGAA)  
  
-**BIG NEWS** [8.dic.20]: ci siamo quasi, in settimana ritiro le stampe, [**ne sono rimaste una trentina**](https://cacioman.github.io/news-interarete-16nov20.html)!  
+[8.dic.20]: ci siamo quasi, in settimana ritiro le stampe, [**ne sono rimaste una trentina**](https://cacioman.github.io/news-interarete-16nov20.html)!  
+
+[17.dic.20]: stampati, ritirati (presso zona industriale di culonia scalo), poi [spediti urbi et orbi](https://www.facebook.com/ClaudioGatti63/posts/2695841210677199) come "piego di libri" e ora sto finendo la consegna a mano tra Roma Sud e Castelli Romani.  
+**copie sold out!!!**. L'idea è di stamparne altre 150 copie  in un'edizione più bella e più forte che pria. Federico e Andrea già preallertati. Vediamo i tempi (direi seconda metà di gennaio).
 
  ---    
 [about me](https://about.me/cacioman)  
