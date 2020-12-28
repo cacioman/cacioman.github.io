@@ -1,4 +1,4 @@
-
+- **28.dic.20**: [renna](https://youtu.be/ykVN82hg28Q) di Troia (a Frascati), della serie #VideoInsulsi  
 - **17.dic.20**: "Intera Rete (cronache metropolitane)" [sold out](https://cacioman.github.io/interarete.html). A gennaio faccio una ristampa. Prenotatela!  
 - **3.dic.20**: del saper affrontare con [impareggiabile stile](https://cacioman.github.io/20wk49-uomodimondo.html) tutte le novità della vita    
 - **2.dic.20**: di un finale alla soliti ignoti col maestro de "[i soliti ignoti](https://cacioman.github.io/20wk49-solitiignoti.html)"  
