@@ -1,5 +1,5 @@
 # Intera Rete  
-#### cronache metropolitane - apr 2020 
+#### cronache metropolitane   
 
 
 ![](/IR-facsimile-libro.jpg "Intera Rete - bozza")
@@ -10,9 +10,11 @@ La sequenza è: treno, Metro e un autobus (o un tratto a piedi di un paio di chi
 Ora che siamo bloccati a casa per il COVID-19 e sto mettendo insieme tutto il materiale, mi rendo conto che forse la cosa si ferma qui. Dopo (ci sarà un dopo) sarà comunque diverso. Io stesso non so se avrò ancora voglia di prendere i mezzi. Di sicuro nessuno di noi (tra pendolari, studenti, pensionati, utenti occasionali, turisti, personale viaggiante ecc ecc) dimostrerà ancora la stessa disinvoltura con cui, fino all’altro ieri, ci siamo ordinatamente ammassati con altri sconosciuti su treni, Metro e bus di Roma.  
 Vediamo.  
 
+Frascati aprile 2020  
+  
 ---    
 se vuoi leggere "Intera Rete" lo trovi qui: [**ebook**](https://docs.google.com/document/d/1PV7WbbdWiHOb4LGqKyP_v74guc3X_x8mVvlGyGiRBqY/edit?usp=sharing) - [web](https://docs.google.com/document/d/e/2PACX-1vQRwiANaom26EhtbYZtutYeL-2fAjymjrPLMVab8JFhXCJS-6tZhbRlzBT5uN64oruOdjbD5KI3Oofl/pub) -  [**instagram**](https://www.instagram.com/InteraRete/) - [facebook](https://www.facebook.com/InteraReteFB)   
-e qui ancora trovi le [video letture](https://www.youtube.com/channel/UC8B2bq3VdPtSeLzryWwNAlQ) di Daniela Margherita e quasi tutte le [foto](https://photos.app.goo.gl/px1VuYtnZLgSsTGAA)  
+e qui ancora trovi quasi tutte le [**foto**](https://photos.app.goo.gl/px1VuYtnZLgSsTGAA) e tutte le [video letture](https://www.youtube.com/channel/UC8B2bq3VdPtSeLzryWwNAlQ) di Daniela Margherita.   
 
 ---    
 [about me](https://about.me/cacioman)  
