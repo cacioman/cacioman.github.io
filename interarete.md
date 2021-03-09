@@ -10,7 +10,8 @@ Le foto e le storie di "Intera Rete" raccontano quelle situazioni per come le ho
 
 ---  
 link: 
-- se vuoi leggere il libro, è online su: [google docs](https://docs.google.com/document/d/1PV7WbbdWiHOb4LGqKyP_v74guc3X_x8mVvlGyGiRBqY/edit?usp=sharing) o [webpages](https://docs.google.com/document/d/e/2PACX-1vQRwiANaom26EhtbYZtutYeL-2fAjymjrPLMVab8JFhXCJS-6tZhbRlzBT5uN64oruOdjbD5KI3Oofl/pub)  
+- se vuoi leggere il libro, è online su: [google docs](https://docs.google.com/document/d/1PV7WbbdWiHOb4LGqKyP_v74guc3X_x8mVvlGyGiRBqY/edit?usp=sharing), [webpages](https://docs.google.com/document/d/e/2PACX-1vQRwiANaom26EhtbYZtutYeL-2fAjymjrPLMVab8JFhXCJS-6tZhbRlzBT5uN64oruOdjbD5KI3Oofl/pub) o [pdf](/intera-2nd-edition.pdf) 
+- [come avere una copia del libro](/intera-2nd-edition.md) (e contribuire ad una buona causa)  
 - [qui trovi le mie foto](https://photos.app.goo.gl/px1VuYtnZLgSsTGAA) di dieci anni di andata/ritorno    
 - [questo il canale YouTube](https://www.youtube.com/channel/UC8B2bq3VdPtSeLzryWwNAlQ) con le videoletture di Daniela Margherita 
 - altre risorse per rimanere abbastanza aggiornati: [instagram](https://www.instagram.com/InteraRete/) e [facebook](https://www.facebook.com/InteraReteFB)  
