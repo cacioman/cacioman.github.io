@@ -1,4 +1,5 @@
 
+- **9.mar.21**: stiamo per stampare un altro po' di copie di Intera Rete [ecco come comprarle/prenotarle](https://cacioman.github.io/interarete-2nd-edition.html)  
 - **23.gen.21**: di [sforzi pomeridiani](https://youtu.be/JzSAw8fqoTA) a villa Torlonia #VideoInsulsi
 - **28.dic.20**: [renna](https://youtu.be/ykVN82hg28Q) di Troia (a Frascati), della serie #VideoInsulsi  
 - **3.dic.20**: del saper affrontare con [impareggiabile stile](https://cacioman.github.io/20wk49-uomodimondo.html) tutte le novità della vita    
