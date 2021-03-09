@@ -1,7 +1,7 @@
 # "Intera Rete"  
 ### come comprarla
 
-[![](https://cacioman.github.io/interarete-2nd-edition.png "in arrivo la seconda edizione")](https://cacioman.github.io/interarete.html) 
+[![](https://cacioman.github.io/interarete-2nd-edition.png?v=3 "in arrivo la seconda edizione")](https://cacioman.github.io/interarete.html) 
 
 Entro marzo 2021 ristampiamo un altro po' di copie di [Intera Rete](https://cacioman.github.io/interarete.html).
 
