@@ -1,7 +1,7 @@
 # soliti ignoti 
 #### della serie "a posto così" - wk49 2020   
 
-![](/20wk49-solitiignoti.jpg "Frascati, affaccio")  
+![](https://www.dropbox.com/s/ij968axyoe4o19w/20wk49-solitiignoti.jpg?raw=1 "Frascati, affaccio")  
 
 Adesso sono dieci anni dalla morte di Mario Monicelli, il grande regista cinematografico.  
 Monicelli è morto al San Giovanni dove proprio quella sera l'amico Bizzo doveva fare la notte (ma in un altro reparto, forse medicina uomini, al terzo o quarto piano del corpaccione centrale).   
