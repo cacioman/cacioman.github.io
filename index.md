@@ -7,15 +7,3 @@
 
 ---    
 [about me](https://about.me/cacioman) - [intera rete](https://cacioman.github.io/interarete.html) - [fotoblog](https://www.flickr.com/photos/cacioman/) - [video insulsi](https://www.youtube.com/c/ClaudioGatti44) - [shared post](https://t.me/cacioshared) - [newsletter](https://tinyletter.com/cacioman) 
-
-<!---  
-
-
-![](https://live.staticflickr.com/65535/50383767437_66438be537.jpg "Frascati, stazione di")
-
-
-
---->  
-<!--stackedit_data:
-eyJoaXN0b3J5IjpbMTYxNDA4MTU5Ml19
--->
