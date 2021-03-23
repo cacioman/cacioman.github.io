@@ -1,7 +1,7 @@
 # uomo di mondo 
 #### della serie "scendo il cane" - wk49 2020   
 
-![](/20wk49-uomodimondo.jpg "Terracina, freddino")  
+![](https://www.dropbox.com/s/ah2ggdbwl9rwhva/20wk49-uomodimondo.jpg?raw=1 "Terracina, freddino")  
   
 Sulle scalette della salita sotto casa incrocio due ragazzine che amoreggiano, appartate ma non troppo. Saranno sui vent'anni: una tipo maschiaccio sdrucito (ma sdrucito ad arte), l'altra tipo bambolina (con la posa imbronciata).     
 Ciccio mi tira per snasare proprio dal loro lato,  io strattono e proseguo per il mio giro, quelle non mi calcolano. Quando torno le ritrovo ancora appolpate l'una all'altra.  
