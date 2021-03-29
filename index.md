@@ -1,4 +1,5 @@
 
+- **28.mar.21**: ardite riflessioni fotografiche sulla [domenica delle palme](http://simp.ly/p/Zyqzb1)    
 - **9.mar.21**: stiamo stampando un altro po' di copie di Intera Rete: ecco [come comprarle](https://cacioman.github.io/interarete-2nd-edition.html)  
 - **23.gen.21**: di [sforzi pomeridiani](https://youtu.be/JzSAw8fqoTA) a villa Torlonia #VideoInsulsi
 - **28.dic.20**: [renna](https://youtu.be/ykVN82hg28Q) di Troia (a Frascati), della serie #VideoInsulsi  
