@@ -1,9 +1,9 @@
-# "Intera Rete"  
-### come comprarla
+# "Intera Rete"  - coming soon
+### come prenotarla
 
 ![](https://www.dropbox.com/s/mxex141u9r1tsi5/interarete-2nd-edition.png?raw=1 "in arrivo la seconda edizione")   
 
-Entro marzo 2021 ristampiamo un altro po' di copie di [Intera Rete](https://cacioman.github.io/interarete.html).
+Entro aprile 2021 ristampiamo un altro po' di copie di [Intera Rete](https://cacioman.github.io/interarete.html).
 
 Il prezzo è di 15 euro a copia (con un piccolo sconto se ne comprate di più: 60 euro per cinque copie; 100 euro per dieci copie).  
 Coperti i costi di stampa, **il resto del ricavato lo mandiamo agli amici di [Baobab Eperience](https://baobabexperience.org/)** per le attività di supporto ai migranti *romani*.  
