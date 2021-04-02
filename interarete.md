@@ -10,11 +10,10 @@ Le foto e le storie di "Intera Rete" raccontano quelle situazioni per come le ho
 
 ---  
 link: 
-- se vuoi leggere il libro, è online su: [google docs](https://docs.google.com/document/d/1PV7WbbdWiHOb4LGqKyP_v74guc3X_x8mVvlGyGiRBqY/edit?usp=sharing), [webpages](https://docs.google.com/document/d/e/2PACX-1vQRwiANaom26EhtbYZtutYeL-2fAjymjrPLMVab8JFhXCJS-6tZhbRlzBT5uN64oruOdjbD5KI3Oofl/pub) o [pdf](/interarete-2nd-edition.pdf) 
-- se vuoi [comprare una copia](/interarete-2nd-edition.md) del libro (e contribuire ad una buona causa)  
-- [qui trovi tutte le foto](https://photos.app.goo.gl/px1VuYtnZLgSsTGAA) di dieci anni di andata/ritorno    
+- se vuoi leggere il libro, lo trovi gratis online in queste versioni: [google docs](https://docs.google.com/document/d/1PV7WbbdWiHOb4LGqKyP_v74guc3X_x8mVvlGyGiRBqY/edit?usp=sharing), [webpages](https://docs.google.com/document/d/e/2PACX-1vQRwiANaom26EhtbYZtutYeL-2fAjymjrPLMVab8JFhXCJS-6tZhbRlzBT5uN64oruOdjbD5KI3Oofl/pub) o [pdf](/interarete-2nd-edition.pdf) 
+- [cicca qui](/interarete-2nd-edition.md) per avere una copia del libro in carta e ossa (e contribuire pure ad una buona causa)  
 - [questo il canale YouTube](https://www.youtube.com/channel/UC8B2bq3VdPtSeLzryWwNAlQ) con le videoletture di Daniela Margherita 
-- per rimanere (abbastanza) aggiornati: [instagram](https://www.instagram.com/InteraRete/)    
+- pianin pianino sto riettendo su [instagram](https://www.instagram.com/InteraRete/) tutte le foto dell'archivio (diciamo gli ultimi 8-9 anni)    
 - se ne parla anche qui:  [noc sensei (feb21)](https://www.nocsensei.com/lente/talenti/admin4914/quattro-splendidi-libri/); [new old camera (feb21)](https://youtu.be/liLdrN-OhoY); [crono news (set20)](https://crono.news/Y:2020/M:07/D:31/h:20/m:38/s:25/claudio-gatti-storie-metropolitane-di-pendolarismo-quotidiano/?fbclid=IwAR0_44grhOo38E2FiM1h5a4exzcAlRjKYoysokIDaypL9k7MBgGVaRpRAw4);
    
 ---    
