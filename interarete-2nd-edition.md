@@ -10,7 +10,7 @@ Coperti i costi di stampa, **il resto del ricavato lo mandiamo agli amici di [Ba
 
 Il libro non è ancora su Amazon, IBS, BookDealer o altri.    
 Per fare un ordine mandatemi una mail su [cacioman@gmail.com](mailto::cacioman@gmail.com) oppure contattatemi con [Facebook](https://www.facebook.com/ClaudioGatti63), [Telegram](https://t.me/cgatti) o [Instagram](https://www.instagram.com/cacioman63).  
-Spedisco con Poste Italiane (che è lenta ma inesorabile), pagate dopo la consegna (con bonifico o [PayPal](https://www.paypal.me/ClaudioGatti)).  
+Spedisco con Poste Italiane (che è lenta ma inesorabile), pagherete dopo la consegna (con bonifico o [PayPal](https://www.paypal.me/ClaudioGatti)).  
 Se poi siete in zona Roma Sud e vi va di fare due chiacchiere (opportunamente distanziati), consegno anche a mano.  
 
 ---    
