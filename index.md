@@ -1,10 +1,10 @@
 
 archivio: 
 
-- [**vedo gente, faccio code**](https://tinyletter.com/cacioman/archive): la mia newsletter con tutti gli aggiornamenti, ne mando una a settimana (se la mando)  
-- [intera rete](https://cacioman.github.io/interarete.html): racconti e foto dei bei tempi andati di quando ci si ammassava spensieratamente sui mezzi pubbici  
-- [fotoblog](https://www.flickr.com/photos/cacioman/): la strisciata di foto che faccio in giro manomano che le carico (poi ogni tanto le cancello tutte) 
-- [video insulsi](https://www.youtube.com/c/ClaudioGatti44): i video lunghi e loffi che piacciono solo a me   
+- [**vedo gente, faccio code**](https://tinyletter.com/cacioman/archive): la newsletter fatta con le mie manone e tutti i post appena usciti messi per benino, ne mando una a settimana (se la mando, quando la mando)  
+- [intera rete](https://cacioman.github.io/interarete.html): i racconti e le foto dei bei tempi andati quando ci si ammassava spensieratamente sui mezzi pubbici  
+- [fotoblog](https://www.flickr.com/photos/cacioman/): la strisciata di foto che faccio in giro e che carico subito (poi dopo un po' però cancello tutto) 
+- [video insulsi](https://www.youtube.com/c/ClaudioGatti44): i video lunghi e loffi che piacciono solo a me (e mia moglie)   
 - [shared post](https://t.me/cacioshared): i post che trovo in rete e che mi sembrano interessantissimi 
 - [navigare a vista](https://anchor.fm/cacioman63): un podcast fermo alla prima puntata    
 
