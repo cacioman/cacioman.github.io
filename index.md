@@ -1,10 +1,14 @@
 
-- **28.mar.21**: ardite riflessioni fotografiche sulla [domenica delle palme](/21wk12-palmedomenicadelle.md)    
-- **9.mar.21**: stiamo stampando un altro po' di copie di Intera Rete: ecco [come comprarle](https://cacioman.github.io/interarete-2nd-edition.html)  
-- **23.gen.21**: di [sforzi pomeridiani](https://youtu.be/JzSAw8fqoTA) a villa Torlonia #VideoInsulsi
-- **28.dic.20**: [renna](https://youtu.be/ykVN82hg28Q) di Troia (a Frascati), della serie #VideoInsulsi  
-- **3.dic.20**: del saper affrontare con [impareggiabile stile](https://cacioman.github.io/20wk49-uomodimondo.html) tutte le novità della vita    
-- **2.dic.20**: di un finale alla soliti ignoti col maestro de "[i soliti ignoti](https://cacioman.github.io/20wk49-solitiignoti.html)"  
+i miei link: 
+
+- [**vedo gente, faccio code**](https://tinyletter.com/cacioman/archive): la mia newsletter con tutti gli aggiornamenti, ne mando una a settimana (se la mando)  
+- [intera rete](https://cacioman.github.io/interarete.html): racconti e foto dei bei tempi andati di quando ci si ammassava spensieratamente sui mezzi pubbici  
+- [fotoblog](https://www.flickr.com/photos/cacioman/): la strisciata di foto che faccio in giro manomano che le carico (poi ogni tanto le cancello tutte) 
+- [video insulsi](https://www.youtube.com/c/ClaudioGatti44): i video lunghi e loffi che piacciono solo a me   
+- [shared post](https://t.me/cacioshared): i post che trovo in rete e che mi sembrano interessantissimi 
+- [navigare a vista](https://anchor.fm/cacioman63): un podcast fermo alla prima post di prova  
+
+per seguirmi: [newsletter](https://tinyletter.com/cacioman), [twitter](https://tinyletter.com/cacioman), [istagram](https://www.instagram.com/cacioman63/), [facebook](https://www.facebook.com/ClaudioGatti63), [telegram](https://t.me/s/cacioman), [blogger](https://cacioman.blogspot.com/)
 
 ---    
-[about me](https://about.me/cacioman) - [intera rete](https://cacioman.github.io/interarete.html) - [fotoblog](https://www.flickr.com/photos/cacioman/) - [video insulsi](https://www.youtube.com/c/ClaudioGatti44) - [shared post](https://t.me/cacioshared) - [newsletter](https://tinyletter.com/cacioman) 
+[about me](https://about.me/cacioman) 
