@@ -10,7 +10,7 @@ Le foto e le storie di "Intera Rete" raccontano quelle situazioni per come le ho
 
 ---  
 link: 
-- se vuoi leggere il libro, lo trovi gratis online in queste versioni: [google docs](https://docs.google.com/document/d/1PV7WbbdWiHOb4LGqKyP_v74guc3X_x8mVvlGyGiRBqY/edit?usp=sharing), [webpages](https://docs.google.com/document/d/e/2PACX-1vQRwiANaom26EhtbYZtutYeL-2fAjymjrPLMVab8JFhXCJS-6tZhbRlzBT5uN64oruOdjbD5KI3Oofl/pub) o [pdf](https://www.dropbox.com/s/1da00681sc3lmqb/interarete-2nd-edition.pdf?dl=0) 
+- se vuoi leggere il libro, lo trovi gratis online in queste versioni: [google docs](https://docs.google.com/document/d/1PV7WbbdWiHOb4LGqKyP_v74guc3X_x8mVvlGyGiRBqY/edit?usp=sharing), [webpages](https://docs.google.com/document/d/e/2PACX-1vQRwiANaom26EhtbYZtutYeL-2fAjymjrPLMVab8JFhXCJS-6tZhbRlzBT5uN64oruOdjbD5KI3Oofl/pub) o [pdf](https://drive.google.com/file/d/1_DByHcB7XwEvOEKSn8o94STRQoVUqiLo/view?usp=sharing) 
 - [cicca qui](/interarete-2nd-edition.md) per avere una copia del libro in carta e ossa (e contribuire pure ad una buona causa)  
 - [questo il canale YouTube](https://www.youtube.com/channel/UC8B2bq3VdPtSeLzryWwNAlQ) con le videoletture di Daniela Margherita 
 - pianin pianino sto rimettendo su [instagram](https://www.instagram.com/InteraRete/) tutte le foto dell'archivio (diciamo gli ultimi 8-9 anni)    
