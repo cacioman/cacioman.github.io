@@ -1,5 +1,5 @@
-# Contro Canto Collettivo
-## una residenza creativa
+### Contro Canto Collettivo
+#### una residenza creativa
 
 ![]( https://www.dropbox.com/s/1kxqvx2588iap35/20210903_141019.jpg?raw=1 "Empoli - davanti allo Strano Bar ")  
 
