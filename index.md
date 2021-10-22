@@ -1,3 +1,13 @@
+ultime cose :
+
+- 17.ott: spassosissime [vignette e articoli](https://t.me/cacioshared) di altissimo profilo su cacioman'shared
+- 17.ott: nuove foto sul mio [fotoblog](https://flickr.com/photos/cacioman/)
+- 16.ott:  su [InteraRete](https://www.instagram.com/interarete/) si continua testardamente a postare fino ad esaurimento foto   
+- 14.ott:  di [pensieri alati](http://simp.ly/p/9WkDxZ) e altri inattesi cambi di prospettiva 
+- 11.ott:  di [armadi](http://simp.ly/p/tHgYV3) di perifieria (tipo la canzone di Eros)  
+- 10.ott: di [cose da ciclisti](http://simp.ly/p/W8rTLd) 
+- 9.ott: di [vuoti spazio-temporali](http://simp.ly/p/ShyqkH) in zona triage 
+
 
 archivio: 
 
