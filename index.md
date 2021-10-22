@@ -1,5 +1,6 @@
 ultime cose :
 
+- 22.ott: video insulso di [telefonate serali](https://youtu.be/uE68cHIhDqw) sulla piazza di Terracina alta (45sec) 
 - 17.ott: spassosissime [vignette e articoli](https://t.me/cacioshared) di altissimo profilo su cacioman'shared
 - 17.ott: nuove foto sul mio [fotoblog](https://flickr.com/photos/cacioman/)
 - 16.ott:  su [InteraRete](https://www.instagram.com/interarete/) si continua testardamente a postare fino ad esaurimento foto   
