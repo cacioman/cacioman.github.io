@@ -6,7 +6,7 @@ ultime cose :
 - 16.ott:  su [InteraRete](https://www.instagram.com/interarete/) si continua testardamente a postare fino ad esaurimento foto   
 - 14.ott:  di [pensieri alati](http://simp.ly/p/9WkDxZ) e altri inattesi cambi di prospettiva 
 - 11.ott:  di [armadi](http://simp.ly/p/tHgYV3) di perifieria (tipo la canzone di Eros)  
-- 10.ott: di [cose da ciclisti](https://cacioman.github.io/signoramia211009.html) 
+- 10.ott: di [cose da ciclisti](https://cacioman.github.io/signoramia211010.html) 
 - 9.ott: di [vuoti spazio-temporali](http://simp.ly/p/ShyqkH) in zona triage 
 
 
