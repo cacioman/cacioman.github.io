@@ -13,7 +13,7 @@ Io volevo vedere come funzionava, così mi sono messo in mezzo con la scusa dell
 settembre 2021  
 
 
-- [exit](http://simp.ly/p/DlrRXn) 
+- [exit](/CCCexit.md) 
 - giochi di ruolo
 - toponomastica
 - scenografia
