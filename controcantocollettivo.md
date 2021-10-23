@@ -19,11 +19,11 @@ settembre 2021
 - scenografia
 - audio
 - pianificazione
-- [scrittura](http://simp.ly/p/GqsS3T)  
-- [riscaldamento #1](http://simp.ly/p/TCsb1R)     
+- scrittura  
+- riscaldamento #1     
 - verifica
 - performance
-- [riscaldamento #2](http://simp.ly/p/FzT6c8)   
+- riscaldamento #2   
 
 
 ---  
