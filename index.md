@@ -7,7 +7,7 @@ ultime cose :
 - 14.ott:  di [pensieri alati](http://simp.ly/p/9WkDxZ) e altri inattesi cambi di prospettiva 
 - 11.ott:  di [armadi](http://simp.ly/p/tHgYV3) di perifieria (tipo la canzone di Eros)  
 - 10.ott: di [cose da ciclisti](https://cacioman.github.io/signoramia211010.html) 
-- 9.ott: di [vuoti spazio-temporali](https://cacioman.github.io/ingiro211010.html) in zona triage 
+- 9.ott: di [vuoti spazio-temporali](https://cacioman.github.io/ingiro211009.html) in zona triage 
 
 
 archivio: 
