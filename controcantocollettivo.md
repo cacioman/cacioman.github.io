@@ -1,61 +1,30 @@
-### Contro Canto Collettivo
-#### una residenza creativa
+# Controcanto Collettivo 
+### metodo e applicazione
 
-![]( https://www.dropbox.com/s/1kxqvx2588iap35/20210903_141019.jpg?raw=1 "Empoli - davanti allo Strano Bar ")  
+![]( https://lh3.googleusercontent.com/pw/AM-JKLU5Cp-0fLGhcEt8KMeZ4GH4__i6xW35V94C376ZXrglRDcKmGh2RaxgeZb8vvWv8PlEzoOUSFjeaSHzUUs6c1YmAEfjIGkS-_wiO2RdPE-PFkaEY7oPPWGGwaroG8nGEInD0TzYlkrtUvEWPMdqIipdmw=s717 "Empoli - Teatro Giallo Marino  ")  
 
-Claudio Gatti - https://about.me/cacioman  
-2021  
-
----  
-## premessa 
-
-![]( https://www.dropbox.com/s/fuipsrpm62ke15i/CN_20210908_210150.jpg?raw=1 "Empoli - al Teatro Giallo Marino, proprio sopra la Coop  ")  
-
-Contro Canto Collettivo è un gruppo teatrale romano di sei attori-autori. i loro spettacoli se li fanno da soli. Questo sarebbe il loro terzo spettacolo.
+[Controcanto Collettivo](https://www.controcantocollettivo.it) è un gruppo teatrale romano. Collettivo credo che stia a signifcare che quello che fanno (scrittura, drammartugia, ideazione, messa in scena) lo fanno tutti assieme  , Controcanto non so. Hanno una bella vena ironica con cui affrontano temi anche complicati della vita di tut. Se avete modo andateli a vedere.   
+La parola "collettivo" sa di anni settanta e *un sacco alternativo* ma in effetti è molto calzante per come  scrivono: partecipano tutti insieme .  
+Io ho visto il loro secondo spettacolo "Finalmente domenica" che ha girato tantissimo a dire che i loro spettacoli se scrivono e recitano li fanno da soli. Questo sarebbe il loro terzo spettacolo.
 Affrontano sempre un tema diverso.
 Io ho visto:
 Questa volta fanno XXX. La prossima forse YYY.
 Io volevo vedere come funzionava, così mi sono messo in mezzo con la scusa delle foto
+settembre 2021  
+
+
+- [exit](http://simp.ly/p/DlrRXn) 
+- giochi di ruolo
+- toponomastica
+- scenografia
+- audio
+- pianificazione
+- [scrittura](http://simp.ly/p/GqsS3T)  
+- [riscaldamento #1](http://simp.ly/p/TCsb1R)     
+- verifica
+- performance
+- [riscaldamento #2](http://simp.ly/p/FzT6c8)   
+
 
 ---  
-### quatrro mani
-
-![]( https://www.dropbox.com/s/6q4degq3ffoco30/20210903_153908.jpg?raw=1 "tavolo da lavoro ")  
-
-scrittura, scaramazia, esoterismo, gatti di ALice
-
----  
-### riscaldamento
-
-![]( https://www.dropbox.com/s/e567ozzgqibjcd3/_DSC4130.JPG?raw=1 "ddd ")  
-
-
-
----  
-
-- collettivo
-
-- connotazioni
-tic, nomi, dettagli, tipo D&D
-toponomastica, calata
-
-- la storia
-
-- la grande impostura  
-dialoghi serrati, logica illogica, 
-
-- la scrittura indiziaria
-
-- riscaldamento
-
-- mangiare, bere, uomo, donna
-
-- defaticamento
-svincoli, Fatacalcio, dove mangiare, cosa mangiare, video, trading,
-pokemon
-
-- non ci sono risposte
-
-
----   
-[about me](https://about.me/cacioman) 
+https://about.me/cacioman 
