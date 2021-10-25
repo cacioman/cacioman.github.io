@@ -14,7 +14,7 @@ link:
 - [cicca qui](/interarete-2nd-edition.md) per avere una copia del libro in carta e ossa (e contribuire pure ad una buona causa)  
 - [questo il canale YouTube](https://www.youtube.com/channel/UC8B2bq3VdPtSeLzryWwNAlQ) con le videoletture di Daniela Margherita 
 - pianin pianino sto rimettendo su [instagram](https://www.instagram.com/InteraRete/) tutte le foto dell'archivio (diciamo gli ultimi 8-9 anni)    
-- se ne parla anche qui:  [noc sensei (feb21)](https://www.nocsensei.com/lente/talenti/admin4914/quattro-splendidi-libri/); [new old camera (feb21)](https://youtu.be/liLdrN-OhoY); [crono news (set20)](https://crono.news/Y:2020/M:07/D:31/h:20/m:38/s:25/claudio-gatti-storie-metropolitane-di-pendolarismo-quotidiano/?fbclid=IwAR0_44grhOo38E2FiM1h5a4exzcAlRjKYoysokIDaypL9k7MBgGVaRpRAw4);
+- se ne parla anche qui:  [ci si vede in giro](https://www.cisivedeingiro.com/giri-di-parole/intera-rete-cronache-metropolitane/); [noc sensei (feb21)](https://www.nocsensei.com/lente/talenti/admin4914/quattro-splendidi-libri/); [new old camera (feb21)](https://youtu.be/liLdrN-OhoY); [crono news (set20)](https://crono.news/Y:2020/M:07/D:31/h:20/m:38/s:25/claudio-gatti-storie-metropolitane-di-pendolarismo-quotidiano/?fbclid=IwAR0_44grhOo38E2FiM1h5a4exzcAlRjKYoysokIDaypL9k7MBgGVaRpRAw4);
    
 ---    
 [about me](https://about.me/cacioman)  
