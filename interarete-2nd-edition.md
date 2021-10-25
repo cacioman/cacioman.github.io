@@ -12,7 +12,7 @@ Il libro non è su Amazon, IBS, BookDealer o altri. Per fare un ordine mandatemi
 Spedisco con Poste Italiane (che è lenta ma inesorabile), pagherete dopo la consegna (con bonifico o [PayPal](https://www.paypal.me/ClaudioGatti)).  
 Se poi siete in zona Roma Sud e vi va di fare due chiacchiere (opportunamente distanziati), consegno anche a mano.  
 
-Grazie sempre a Federico e Andrea (che se non c'erano loro qui non se ne faceva nulla).
+Grazie sempre a [Federico](https://www.facebook.com/federico.cianciaruso) e [Andrea](https://www.facebook.com/andrea.mammarella) (che se non c'erano loro qui non se ne faceva nulla).
 
 ---    
 [home](https://cacioman.github.io/interarete.html) - [about me](https://about.me/cacioman)  
