@@ -1,5 +1,6 @@
 ultime cose :
 
+- 25.ott: di Intera Rete se ne parla su "[ci si vede in giro](https://www.cisivedeingiro.com/giri-di-parole/intera-rete-cronache-metropolitane/)"  
 - 22.ott: video insulso di [telefonate serali](https://youtu.be/uE68cHIhDqw) sulla piazza di Terracina alta (47sec) 
 - 17.ott: spassosissime [vignette e articoli](https://t.me/cacioshared) di altissimo profilo su cacioman'shared
 - 17.ott: nuove foto sul mio [fotoblog](https://flickr.com/photos/cacioman/)
