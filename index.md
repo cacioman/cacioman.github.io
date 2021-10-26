@@ -21,7 +21,7 @@ archivio:
 - [shared post](https://t.me/cacioshared): i post che trovo in rete e che mi sembrano interessantissimi 
 - [navigare a vista](https://anchor.fm/cacioman63): un podcast fermo alla prima puntata    
 
-per seguirmi: [newsletter](https://tinyletter.com/cacioman), [twitter](https://tinyletter.com/cacioman), [istagram](https://www.instagram.com/cacioman63/), [facebook](https://www.facebook.com/ClaudioGatti63)
+per seguirmi: [newsletter](https://tinyletter.com/cacioman), [twitter](https://tinyletter.com/cacioman), [istagram](https://www.instagram.com/cacioman63/), [facebook](https://www.facebook.com/ClaudioGatti63), [blogger](https://cacioman.blogspot.com/)
 
 ---    
 [about me](https://about.me/cacioman) 
