@@ -1,7 +1,7 @@
 # social
-### della serie "signora mia" - wk#40 2021   
+### della serie "letti (o quasi)" - wk#42 2021   
 
-![](https://live.staticflickr.com/65535/51569751570_ce023edda9_c.jpg "Barberino del Mugello - uomo solo al comando")  
+![](https://live.staticflickr.com/65535/51631062918_3f1a31ab41_c.jpg "Argentina - ringraziamenti")  
 
 Terracina. Ad un tavolino del bar dove facciamo colazione c’è un tizio sugli ottanta, un po’ scalcinato. Fuma molto e guarda il telefonino appoggiato sul portasalviette del tavolo. E’ una mini TV ma volume al massimo. Vede una partita di calcio che riconosciamo subito: è la finale degli europei di tre mesi fa, gli ultimi cinque-dieci minuti, quelli dei calci di rigore. Il telecronista si svocia sempre più, Jorginho sbaglia il suo tiro, i due neri dopo pure loro, Gigio Donnarumma *grande protagonista* e poi “campioni! campioni!!!”.   A quel punto la bocca, prima statica, prende finalmente una specie di piega espressiva, un po’ beffarda. Finiti i rigori chiude e se ne va via. 
 
