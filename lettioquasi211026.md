@@ -12,7 +12,7 @@ La cosa che siamo andati a vedere dopo cinque minuti si rivela una legnata sui d
 
 In finale un anno e mezzo per entrare in un teatro, più un’ora e quaranta una volta entrati, sempre ad aspettare che lo facessero ‘sto benedetto teatro di cui blaterano. Intanto però le FFP2 danno fastidio; i palchetti sono tenuti stranamente vuoti e noi che stiamo azzeccati in platea c’abbiamo il pensiero “guarda se mi devo prendere il covid per aver visto ‘sta porcata!..” e la paranoia che ti prende pure per la macchina parcheggiata a cazzo di cane sul Lungotevere (che questa volta la multa, se me la danno, me la merito tutta).  
 
-Sarebbe da accendere il telefono (diligentemente spento all’inizio) e sparasi a tutto volume la finale della 4x100 maschile, quella delle Olimpiadi, con Tortu dio problematico che corre come Forrest Gump (se non lo bloccano gli amici esce pure dallo stadio), una finale che conosco a memoria e che avrò visto cinquanta volte e altrettante la vedrei, di uno sport che non pratico e che neanche seguo ma che in definitiva è come l’uva passa: dà più calorie.
+Sarebbe da accendere il telefono (diligentemente spento all’inizio) e sparasi a tutto volume la finale della 4x100 maschile, quella delle Olimpiadi, con Tortu dio problematico che corre come Forrest Gump, una finale che conosco a memoria e che avrò visto cinquanta volte e altrettante la vedrei, di uno sport che non pratico e che neanche seguo ma che in definitiva è come l’uva passa: dà più calorie.
 
 ---   
 [about me](https://about.me/cacioman) 
