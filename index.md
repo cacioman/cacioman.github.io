@@ -1,5 +1,6 @@
 ultime cose :
 
+- 27.ott: sono arrivate le stampe di Intera Rete, [cicca qui](https://cacioman.github.io/interarete-2nd-edition.html) per averne una   
 - 26.ott: di un programmato ed attesissimo [ritorno in pista](https://cacioman.github.io/lettioquasi211026.html) 
 - 25.ott: di Intera Rete se ne parla su "[ci si vede in giro](https://www.cisivedeingiro.com/giri-di-parole/intera-rete-cronache-metropolitane/)"  
 - 22.ott: video insulso di [telefonate serali](https://youtu.be/uE68cHIhDqw) sulla piazza di Terracina alta (47sec) 
