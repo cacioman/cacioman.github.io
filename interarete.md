@@ -15,7 +15,7 @@ link:
 - [questo il canale YouTube](https://www.youtube.com/channel/UC8B2bq3VdPtSeLzryWwNAlQ) con le videoletture di Daniela Margherita 
 - pianin pianino sto rimettendo su [instagram](https://www.instagram.com/InteraRete/) tutte le foto dell'archivio (diciamo gli ultimi 8-9 anni)    
 - se ne parla anche qui:  [ci si vede in giro](https://www.cisivedeingiro.com/giri-di-parole/intera-rete-cronache-metropolitane/) (ott21); [noc sensei](https://www.nocsensei.com/lente/talenti/admin4914/quattro-splendidi-libri/) (feb21); [new old camera](https://youtu.be/liLdrN-OhoY) (feb21); [crono news](https://crono.news/Y:2020/M:07/D:31/h:20/m:38/s:25/claudio-gatti-storie-metropolitane-di-pendolarismo-quotidiano/?fbclid=IwAR0_44grhOo38E2FiM1h5a4exzcAlRjKYoysokIDaypL9k7MBgGVaRpRAw4) (set20);
-- brexperience presentazione](https://youtu.be/brnGlXThfag) dal terrazzo di casa mia (durata video 2min 47sec).    
+- breve [video presentazione](https://youtu.be/brnGlXThfag) dal terrazzo di casa mia (durata video 2min 47sec).    
    
 ---    
 [about me](https://about.me/cacioman)  
