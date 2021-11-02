@@ -1,6 +1,7 @@
 ultime cose :
 
-- 1.nov: breve [video book experience](https://youtu.be/brnGlXThfag) di Intera Rete fatta dal  terrazzo di casa mia (l'ora di sonno in più di oggi ce la siamo fumata così; durata video 2min 47sec).    
+- 2.nov: book trailer #2: [lettori accaniti](https://youtu.be/mYt2Ns11YoA)  
+- 1.nov: book trailer #1: [idee regalo](https://youtu.be/brnGlXThfag)     
 - 27.ott: sono arrivate le stampe di Intera Rete, [cicca qui](https://cacioman.github.io/interarete-2nd-edition.html) per averne una   
 - 26.ott: di un programmato ed attesissimo [ritorno in pista](https://cacioman.github.io/lettioquasi211026.html) 
 - 25.ott: di Intera Rete se ne parla su "[ci si vede in giro](https://www.cisivedeingiro.com/giri-di-parole/intera-rete-cronache-metropolitane/)"  
