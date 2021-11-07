@@ -1,5 +1,4 @@
-# Controcanto Collettivo
-### metodo e applicazione
+# controcampo colletttivo
 
 ![]( https://lh3.googleusercontent.com/pw/AM-JKLU5Cp-0fLGhcEt8KMeZ4GH4__i6xW35V94C376ZXrglRDcKmGh2RaxgeZb8vvWv8PlEzoOUSFjeaSHzUUs6c1YmAEfjIGkS-_wiO2RdPE-PFkaEY7oPPWGGwaroG8nGEInD0TzYlkrtUvEWPMdqIipdmw=s717 "Empoli - Teatro Giallo Marino  ")  
 
@@ -11,17 +10,9 @@ Quest’anno, a metà 2021, Controcanto ha vinto otto settimane di “residenza�
 Io ne ho approfittato per cercare di capire come funziona questo loro processo creativo e cosa vuol dire esattamente fare le cose in modo "collettivo", così mi sono messo a seguirli con la scusa di fargli delle foto.  
 Loro hanno accettato e questi appunti sul metodo raccontano quello che capito.  
 
-- exit
-- studio
-- toponomastica
-- scenografia
-- audio
-- pianificazione
-- scrittura  
-- riscaldamento #1     
-- verifica
-- performance
-- riscaldamento #2   
+- capitolo #1
+- capitolo #2
+- capitolo #3
 
 ---  
 [about me](https://about.me/cacioman)
