@@ -1,4 +1,5 @@
-# controcampo colletttivo
+# metedo Controcanto
+### ovvero "come è possibile che questi riescono a non fare un cazzo per giorni e poi la settimana dopo ti recitano uno spettacolo nuovo da un'ora e mezza?!"
 
 ![]( https://lh3.googleusercontent.com/pw/AM-JKLU5Cp-0fLGhcEt8KMeZ4GH4__i6xW35V94C376ZXrglRDcKmGh2RaxgeZb8vvWv8PlEzoOUSFjeaSHzUUs6c1YmAEfjIGkS-_wiO2RdPE-PFkaEY7oPPWGGwaroG8nGEInD0TzYlkrtUvEWPMdqIipdmw=s717 "Empoli - Teatro Giallo Marino  ")  
 
