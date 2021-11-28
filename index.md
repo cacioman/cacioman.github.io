@@ -1,30 +1,12 @@
-ultime cose :
+ultime cose su [titolo](xxx) 
 
-- 2.nov: book trailer #2: [lettori accaniti](https://youtu.be/mYt2Ns11YoA)  
-- 1.nov: book trailer #1: [idee regalo](https://youtu.be/brnGlXThfag)     
-- 27.ott: sono arrivate le stampe di Intera Rete, [cicca qui](https://cacioman.github.io/interarete-2nd-edition.html) per averne una   
-- 26.ott: di un programmato ed attesissimo [ritorno in pista](https://cacioman.github.io/lettioquasi211026.html) 
-- 25.ott: di Intera Rete se ne parla su "[ci si vede in giro](https://www.cisivedeingiro.com/giri-di-parole/intera-rete-cronache-metropolitane/)"  
-- 22.ott: video insulso di [telefonate serali](https://youtu.be/uE68cHIhDqw) sulla piazza di Terracina alta (47sec) 
-- 17.ott: spassosissime [vignette e articoli](https://t.me/cacioshared) di altissimo profilo su cacioman'shared
-- 17.ott: nuove foto sul mio [fotoblog](https://flickr.com/photos/cacioman/)
-- 16.ott:  su [InteraRete](https://www.instagram.com/interarete/) si continua testardamente a postare fino ad esaurimento foto   
-- 14.ott:  di [pensieri alati](https://cacioman.github.io/signoramia211014.html) e altri inattesi cambi di prospettiva 
-- 11.ott:  di [armadi](https://cacioman.github.io/ingiro211011.html) di perifieria (tipo la canzone di Eros)  
-- 10.ott: di [cose da ciclisti](https://cacioman.github.io/signoramia211010.html) 
-- 9.ott: di [vuoti spazio-temporali](https://cacioman.github.io/ingiro211009.html) in zona triage 
-
-
-archivio: 
+in archivio: 
 
 - [vedo gente, faccio code](https://tinyletter.com/cacioman/archive): la newsletter fatta con le mie manone e tutti i post messi in ordine per benino, mando una mail a settimana (il sabato, se la mando, quando la mando)  
 - [intera rete](https://cacioman.github.io/interarete.html): i racconti e le foto dei bei tempi andati quando ci si ammassava spensieratamente sui mezzi pubbici  
 - [fotoblog](https://www.flickr.com/photos/cacioman/): la strisciata di foto che faccio in giro e che carico subito (poi dopo un po' però cancello tutto) 
 - [video insulsi](https://www.youtube.com/c/ClaudioGatti44): i video lenti ed insulsi che piacciono solo a me (e a pochi altri soggettoni)   
 - [shared post](https://t.me/cacioshared): i post che trovo in rete e che mi sembrano interessantissimi 
-- [navigare a vista](https://anchor.fm/cacioman63): un podcast fermo alla prima puntata    
-
-per seguirmi: [newsletter](https://tinyletter.com/cacioman), [twitter](https://tinyletter.com/cacioman), [istagram](https://www.instagram.com/cacioman63/), [facebook](https://www.facebook.com/ClaudioGatti63), [blogger](https://cacioman.blogspot.com/)
 
 ---    
 [about me](https://about.me/cacioman) 
