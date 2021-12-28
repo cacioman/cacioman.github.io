@@ -1,5 +1,5 @@
 # metedo Controcanto
-### ovvero "come è possibile che questi non fanno un cazzo per giorni e poi ti inventano uno spettacolo da un’ora e mezza?!"
+### ovvero "come è possibile che questi non fanno un cazzo per giorni e dopo una settimana passata così ti inventano uno spettacolo da un’ora e mezza?!"
 
 ![]( https://live.staticflickr.com/65535/51783179006_0fd0c71a58_k.jpg "Empoli - Teatro Giallo Marino")  
 
