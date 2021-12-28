@@ -8,9 +8,10 @@ Partono da un tema, fanno ricerhe, trovano un'idea, i personaggi chiave e poi, c
 Io li ho seguiti in queste loro "chiuse" solo per capire come fanno.  
 Spolier: non l'ho capito. 
 
-- capitolo #1
-- capitolo #2
-- capitolo #3
+- [titolo 1](https://cacioman.github.io/controcanto001.html)
+- titolo 2  
+- titolo 3  
+- titolo 4  
 
 ---  
 [about me](https://about.me/cacioman)
