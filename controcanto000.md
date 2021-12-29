@@ -1,4 +1,4 @@
-# metedo Controcanto
+# metedo Controcanto Collettivo
 ### ovvero "come è possibile che questi per otto ore al giorno non fanno un cazzo e poi dopo una settimana passata così ti fanno uno spettacolo da un’ora e mezza?!"
 
 ![]( https://live.staticflickr.com/65535/51783179006_b48dbd8895.jpg "Empoli - Teatro Giallo Marino")  
