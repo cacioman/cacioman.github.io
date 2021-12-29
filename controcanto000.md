@@ -3,7 +3,7 @@
 
 ![]( https://live.staticflickr.com/65535/51783179006_b48dbd8895.jpg "Empoli - Teatro Giallo Marino")  
 
-[Controcanto Collettivo](https://www.controcantocollettivo.it) è un gruppo di sei attori romani che recitano insieme dai tempi della scuola. Gli spettacoli se li scrivono da soli, a dodici mani, chiudendosi per brevi periodi da qualche parte lontano da famiglie ed impicci vari. Dice che neanche scrivono veramente: gli spettacoli se li imparano subito a memoria, il testo magari lo sbobinano dopo ma solo perchè serve per la SIAE.  
+[Controcanto Collettivo](https://www.controcantocollettivo.it) è un gruppo di sei attori romani che recitano insieme dai tempi della scuola. Gli spettacoli se li scrivono da soli, a dodici mani, chiudendosi per brevi periodi da qualche parte lontano da famiglie ed impicci vari. Dice che neanche li scrivono veramente: li imparano a memoria, il testo lo sbobinano dopo e solo per la SIAE.  
 Io per capire come funziona li ho seguiti in queste loro "chiuse".  
 Spolier: non l'ho capito.  
 
