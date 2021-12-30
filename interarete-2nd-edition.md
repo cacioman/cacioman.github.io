@@ -11,6 +11,8 @@ Il libro non è su Amazon, IBS, BookDealer o altri. Per fare un ordine mandatemi
 Spedisco con Poste Italiane (che è lenta ma inesorabile), pagherete dopo la consegna (con bonifico o [PayPal](https://www.paypal.me/ClaudioGatti)).  
 Se poi siete in zona Roma Sud e vi va di fare due chiacchiere (opportunamente distanziati), consegno anche a mano.  
 
+**attenzione**: da oggi (30 dicembre 2021) il libro è in vendita presso la [libreria UBIK Cavour](https://www.facebook.com/libreria.frascati.cavour) di Frascati.  
+
 Grazie sempre a [Federico](https://www.facebook.com/federico.cianciaruso) e [Andrea](https://www.facebook.com/andrea.mammarella) (che se non c'erano loro qui non se ne faceva nulla).
 
 ---    
