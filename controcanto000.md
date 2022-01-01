@@ -12,7 +12,7 @@ Spolier: non l'ho capito.
 - [residenze](https://cacioman.github.io/controcanto001.html)  
 - [riscaldamento #1](https://cacioman.github.io/controcanto002.html): metono la musica per 20 miunti (Fede bara per farlo di più)  
 - [riscaldamento #2](https://cacioman.github.io/controcanto003.html): ciabate ipanemas vs Havaianas. Fanno sul serio  
-- [time out](https://cacioman.github.io/controcanto004.html)  
+- [time out](https://cacioman.github.io/controcanto004.html): i tempi non sono un problema  
 - [una storia quasi vera](https://cacioman.github.io/controcanto004.html)  
 - [lapsus #1](https://cacioman.github.io/controcanto005.html)  
 - [lapsus #2](https://cacioman.github.io/controcanto006.html)  
@@ -30,8 +30,6 @@ Spolier: non l'ho capito.
 - [svincoli](https://cacioman.github.io/controcanto018.html)  brutte notizie, fantacalcio, cose serie, SVINCOLI
 
 - problemi pratici fittizi: coltellino svizzero, le gabbie
-- i tempi non sono un problema
-- studio preliminare: viaggiare in incognito
 - cane sovranista
 - take a nap
 - affitamento è una trappola, avere i tempi comici facili è un problema?
