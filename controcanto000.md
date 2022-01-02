@@ -1,4 +1,4 @@
-# metedo Controcanto Collettivo
+# metodo Controcanto Collettivo
 ### ovvero "come è possibile che questi non fanno un cazzo per otto ore al giorno e dopo una settimana passata così mettono su uno spettacolo da un’ora e mezza?!"
 
 [![]( https://live.staticflickr.com/65535/51783179006_b48dbd8895.jpg "Empoli - Teatro Giallo Marino")](https://www.flickr.com/gp/cacioman/47a02z)  
