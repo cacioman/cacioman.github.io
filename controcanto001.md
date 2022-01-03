@@ -1,5 +1,4 @@
 # storie quasi vere  
-### della serie "metodo controcanto"
 
 ![](https://live.staticflickr.com/65535/51792976418_3c48904728_c.jpg "Empoli - Teatro Giallo Marino")  
 
