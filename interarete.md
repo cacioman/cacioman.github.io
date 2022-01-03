@@ -2,7 +2,7 @@
 #### cronache metropolitane   
 
 
-![](/IR-facsimile-libro.jpg "Intera Rete - bozza")
+![](/IR-facsimile-libro.jpg "Intera Rete - bozza" )
 
 **dove si parla di**  
 Ministeriali di concetto, pensionati eroici, stranieri quasi integrati, turisti Indiana Jones, studenti in chat, cani con padrone al guinzaglio, marzialissimi vigilantes, autisti spallati, homeless organizzati, bipolari ciarlieri, badanti infagottate, operai impolverati, promoter su di giri, madri esaurite, professionisti azzimati e via così. 
