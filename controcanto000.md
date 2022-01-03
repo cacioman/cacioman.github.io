@@ -7,9 +7,10 @@
 Io per capire come funziona li ho seguiti in queste loro "chiuse".  
 Spolier: non l'ho mica capito come fanno. 
 
-- [titolo tbd](https://cacioman.github.io/controcanto001.html)  
-- [titolo tbd](https://cacioman.github.io/controcanto001.html)  
-- [titolo tbd](https://cacioman.github.io/controcanto001.html)  
+- [intro](https://cacioman.github.io/controcanto000.html)  
+- [storie quasi vere](https://cacioman.github.io/controcanto001.html)  
+- [titolo tbd 1](https://cacioman.github.io/controcanto000.html)  
+- [titolo tbd 2](https://cacioman.github.io/controcanto000.html)  
 - ecc.
 
 ---  
