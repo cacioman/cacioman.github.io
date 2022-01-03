@@ -18,9 +18,12 @@ Per fare un ordine mandatemi una mail su [cacioman@gmail.com](mailto::cacioman@g
 Da oggi (30 dicembre 2021) il libro è in vendita presso la [**libreria Cavour Frascati UBIK**](https://www.facebook.com/libreria.frascati.cavour) di Frascati a via Cairoli, 32 (15 euro e passa la paura).  
 
 ---  
-**per leggerlo agratisse** lo trovi gratis online in queste versioni: [google docs](https://docs.google.com/document/d/1PV7WbbdWiHOb4LGqKyP_v74guc3X_x8mVvlGyGiRBqY/edit?usp=sharing), [webpages](https://docs.google.com/document/d/e/2PACX-1vQRwiANaom26EhtbYZtutYeL-2fAjymjrPLMVab8JFhXCJS-6tZhbRlzBT5uN64oruOdjbD5KI3Oofl/pub) o [pdf](https://drive.google.com/file/d/1_DByHcB7XwEvOEKSn8o94STRQoVUqiLo/view?usp=sharing) 
+**puoi leggerlo on line o scaricarlo qui:**  
+- [google docs](https://docs.google.com/document/d/1PV7WbbdWiHOb4LGqKyP_v74guc3X_x8mVvlGyGiRBqY/edit?usp=sharing)  
+- [webpages](https://docs.google.com/document/d/e/2PACX-1vQRwiANaom26EhtbYZtutYeL-2fAjymjrPLMVab8JFhXCJS-6tZhbRlzBT5uN64oruOdjbD5KI3Oofl/pub)  
+- [pdf](https://drive.google.com/file/d/1_DByHcB7XwEvOEKSn8o94STRQoVUqiLo/view?usp=sharing) 
 
-**archivio foto e letture **  
+**archivio foto e letture**  
 - [questo il canale YouTube](https://www.youtube.com/channel/UC8B2bq3VdPtSeLzryWwNAlQ) con le videoletture di Daniela Margherita 
 - su [instagram](https://www.instagram.com/InteraRete/) trovate quasi tutte le foto dell'archivio (diciamo gli ultimi 8-9 anni)    
 
