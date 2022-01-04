@@ -1,6 +1,5 @@
 
 - [ultime cose](https://t.me/s/cacioman) 
-- [metodo Controcanto Collettivo](https://cacioman.github.io/controcanto000.html): una cosa che sto scrivendo ora (gennaio '22)   
 - [vedo gente, faccio code](https://tinyletter.com/cacioman/archive): la mia newsletter   
 - [intera rete](https://cacioman.github.io/interarete.html): i racconti e le foto epoca pre-COVID di quando sui mezzi pubblici romani ci si ammassava tutti spensieratamente   
 - [fotoblog](https://www.flickr.com/photos/cacioman/): la strisciata di foto che faccio in giro (poi dopo un po' però cancello tutto) 
