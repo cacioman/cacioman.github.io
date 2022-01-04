@@ -18,7 +18,7 @@ Coperti i costi di stampa, **il resto del ricavato lo mandiamo agli amici di [Ba
 
 Per fare un ordine mandatemi una mail su [cacioman@gmail.com](mailto::cacioman@gmail.com). Spedisco con Poste Italiane (che è lenta ma inesorabile), pagherete dopo la consegna (con bonifico o [PayPal](https://www.paypal.me/ClaudioGatti)). Se poi siete in zona Roma Sud e vi va di fare due chiacchiere (opportunamente distanziati), consegno anche a mano.  
 
-Da oggi (30 dicembre 2021) il libro è in vendita presso la [**libreria Cavour Frascati UBIK**](https://www.facebook.com/libreria.frascati.cavour) di Frascati a via Cairoli, 32 (15 euro e passa la paura).  
+Da fine dicembre '21 "Intera Rete" è in vendita anche a Frascati presso la [**libreria Cavour Frascati UBIK**](https://www.facebook.com/libreria.frascati.cavour) . 15 euro e passa la paura.  
 
 ---  
 **puoi leggerlo on line o scaricarlo qui:**  
