@@ -16,7 +16,7 @@ Le foto e le storie di "Intera Rete" raccontano quelle situazioni per come le ho
 Prezzo di una copia 15 euro (60 euro per 5 copie; 100 euro per 10 copie).  
 Coperti i costi di stampa, **il resto del ricavato lo mandiamo agli amici di [Baobab Eperience](https://baobabexperience.org/)** per le attività di supporto ai migranti *romani*.  
 
-Per fare un ordine mandatemi una mail su [cacioman@gmail.com](mailto::cacioman@gmail.com) oppure contattatemi con [Facebook](https://www.facebook.com/ClaudioGatti63), [Telegram](https://t.me/cgatti) o [Instagram](https://www.instagram.com/cacioman63). Spedisco con Poste Italiane (che è lenta ma inesorabile), pagherete dopo la consegna (con bonifico o [PayPal](https://www.paypal.me/ClaudioGatti)). Se poi siete in zona Roma Sud e vi va di fare due chiacchiere (opportunamente distanziati), consegno anche a mano.  
+Per fare un ordine mandatemi una mail su [cacioman@gmail.com](mailto::cacioman@gmail.com). Spedisco con Poste Italiane (che è lenta ma inesorabile), pagherete dopo la consegna (con bonifico o [PayPal](https://www.paypal.me/ClaudioGatti)). Se poi siete in zona Roma Sud e vi va di fare due chiacchiere (opportunamente distanziati), consegno anche a mano.  
 
 Da oggi (30 dicembre 2021) il libro è in vendita presso la [**libreria Cavour Frascati UBIK**](https://www.facebook.com/libreria.frascati.cavour) di Frascati a via Cairoli, 32 (15 euro e passa la paura).  
 
