@@ -1,6 +1,6 @@
 # storie quasi vere  
 
-[![](https://live.staticflickr.com/65535/51792976418_3c48904728.jpg "Empoli - Teatro Giallo Marino")](https://flic.kr/p/2mULxs3)  
+[![](https://live.staticflickr.com/65535/51792976418_3c48904728.jpg "Empoli - Teatro Giallo Marino")](https://flic.kr/s/aHBqjzwAJ2)  
 
 Un’amica mia voleva sposarsi in chiesa senza però dover fare il corso prematrimoniale e così, chiedendo in giro, aveva trovato a Roma una suora che vendeva i certificati di frequenza. Certificati veri. Prezzo accettabile.  
 La suora le dà appuntamento ad un bar di via della Conciliazione (esatto: praticamente al Vaticano). Quando la mia amica arriva, la suora (bassa e larga, età indefinibile, sud americana) se ne stava già acquartierata ad un tavolino esterno. Insieme a lei c’era una ragazzona mezza rintronata che le faceva da aiutante.  
