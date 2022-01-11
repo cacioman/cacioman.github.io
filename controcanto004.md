@@ -1,6 +1,6 @@
 # sentissela calla
 
-[![](https://live.staticflickr.com/65535/51791908127_3a4a2edf21_z.jpg "empoli - take a nap")](https://flic.kr/s/aHBqjzwAJ2)  
+[![](https://live.staticflickr.com/65535/51791908127_3a4a2edf21_c.jpg "empoli - take a nap")](https://flic.kr/s/aHBqjzwAJ2)  
 
 Sono dieci minuti che sul marciapiede c’è un soggetto sui sessanta, sul tarchiato, che va avanti e dietro ondivago, camicia completamente aperta su una canottieraccia di lana giallastra che sembra Terence Hill quando fa Trinità. Sotto il braccio tiene stretto un librone delle dimensioni di un messale ma vecchissimo e giallastro pure quello.  
 La mascherina, una di quelle celesti chirurguche, non la tiene sulla bocca ma sopra testa che è una boccia tonda completamente pelata. Non si capisce faccia a stare attaccata alle orecchie ma aderisce talmente bene sul cranio che sembra un pupettone con la cuffietta. 
