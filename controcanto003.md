@@ -1,6 +1,6 @@
 # politically correct
 
-[![](https://live.staticflickr.com/65535/51791908867_208b5823fb.jpg "barberino - sovranisti")](https://flic.kr/s/aHBqjzwAJ2)  
+[![](https://live.staticflickr.com/65535/51791908867_208b5823fb_c.jpg "barberino - sovranisti")](https://flic.kr/s/aHBqjzwAJ2)  
 
 Dopo un paio di giorni, quello che prima era solo un sospetto prende diversa consistenza e poi sinistra certezza: Spicciola, la giocosa, inguaribile ottimista, fregnona, energetica, simpaticissima Spicciola, lo nostra  Spicciola, non può vedere i neri. Per niente. Quasi li aggredisce.  E’ successo due, quasi tre volte, col padrone del B&B che è senegalese (la Toscana è in piena sostituzione etnica e i senagalesi hanno la “c” aspirata, avviatissimi B&B e pure le BMW-Mini nuove di pacca).  
 Pur di giustificarla c’è chi si attacca a una pagina di Wikipedia. Dice che è provato: i cani mica lo fanno perché i neri hanno colore della pelle o un odore diverso (“un odore diverso?!” ma chi l’ha scritta questa Salvini?) no, i cani abbaiano i neri perché non sembrano umani. Ora la cosa chiara è che la pagina Wikipedia non l’ha scritta Salvini ma direttamente i Nazisti dell'Illinois. No no precisa un altro, qui dice che se per questo i cani non considerano umani neanche i bambini. Andiamo bene... allora saranno stati i pensionati "a ragazzì te lo buco 'sto pallone" del Quadraro.  
