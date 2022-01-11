@@ -1,6 +1,6 @@
 # scrittura orale
 
-[![](https://live.staticflickr.com/65535/51792855421_1d8fde7e15.jpg "empoli - a quattro mani")](https://flic.kr/s/aHBqjzwAJ2)  
+[![](https://live.staticflickr.com/65535/51792855421_1d8fde7e15_c.jpg "empoli - a quattro mani")](https://flic.kr/s/aHBqjzwAJ2)  
 
 A scrivere scrivono con carta e penna, senza computer. Scrive uno solo, con una calligrafia microscopica. Gli altri o recitano il dialogo da provare o stanno lì che un po’ prendono appunti e un po’ intervengono.  
 I dialoghi li mettono giù su dei quaderni musicali di quelli che mi fanno pensare a flauti di plastica e saggi delle medie. Dice che lo fanno per scaramanzia: quando iniziarono in cartoleria gli erano rimasti solo i quaderni musicali e da allora quindi hanno *dovuto* continuare ad usare soloquesti (pare infatti che il dio-dei-testi-da-scrivere sia iracondo ed è meglio non provocarlo inutilmente).  
