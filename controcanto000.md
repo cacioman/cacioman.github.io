@@ -7,6 +7,8 @@
 Io per capire come funziona li ho seguiti in queste loro "chiuse".  
 Spolier: non l'ho mica capito come fanno. 
 
+**ultimo aggiornamento 12.gen.2022**  
+
 - [intro](https://cacioman.github.io/controcanto000.html)  
 - [scrittura orale](https://cacioman.github.io/controcanto002.html)    
 - [storie quasi vere](https://cacioman.github.io/controcanto001.html)  
