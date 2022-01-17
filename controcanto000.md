@@ -7,12 +7,13 @@
 Io per capire come funziona li ho seguiti in queste loro "chiuse".  
 Spolier: non l'ho mica capito come fanno. 
 
-**ultimo aggiornamento 13.gen.2022**  
+**ultimo aggiornamento 17.gen.2022**  
 
 - [intro](https://cacioman.github.io/controcanto000.html)  
 - [scrittura orale](https://cacioman.github.io/controcanto002.html)    
 - [storie quasi vere](https://cacioman.github.io/controcanto001.html)  
 - [politically correct](https://cacioman.github.io/controcanto003.html)  
+- [exit strategy](https://cacioman.github.io/controcanto007.html)  
 - [inciampi, lapsus e rimandi vari](https://cacioman.github.io/controcanto005.html)  
 - [sentissela calla](https://cacioman.github.io/controcanto004.html)  
 - [problem solving](https://cacioman.github.io/controcanto006.html)  
