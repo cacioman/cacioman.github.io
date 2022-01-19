@@ -7,7 +7,7 @@
 Io per capire come funziona li ho seguiti in queste loro "chiuse".  
 Spolier: non l'ho mica capito come fanno. 
 
-**ultimo aggiornamento 18.gen.2022**  
+**ultimo aggiornamento 19.gen.2022**  
 
 - [intro](https://cacioman.github.io/controcanto000.html)  
 - [scrittura orale](https://cacioman.github.io/controcanto002.html)    
@@ -18,6 +18,7 @@ Spolier: non l'ho mica capito come fanno.
 - [inciampi, lapsus e rimandi vari](https://cacioman.github.io/controcanto005.html)  
 - [sentissela calla](https://cacioman.github.io/controcanto004.html)  
 - [problem solving](https://cacioman.github.io/controcanto006.html)  
+- [convitato di pietra](https://cacioman.github.io/controcanto009.html)  
 - ecc ecc
 - ecc ecc
 
