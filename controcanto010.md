@@ -1,6 +1,6 @@
 # sospensione  
 
-[![](https://live.staticflickr.com/65535/51794353879_3ace2b700b_c.jpg "empoli - rotonda")](https://flic.kr/s/aHBqjzwAJ2)  
+[![](https://live.staticflickr.com/65535/51794353879_3ace2b700b_c.jpg "empoli - rotonda")](https://flic.kr/s/aHBqjzwAJ2)   
 
 Rimasti bloccati a Firenze-Signa, arriviamo dai Controcanto per l’ora del caffè ma ancora da mangiare. Loro sono lì già da qualche giorno e stanno provando in teatro. Ci diamo appuntamento al bar tavola-calda lì vicino. Si chiama “Strano Bar”. Ce lo facciamo ripetere: “sì, sì, proprio così: STRANO BAR”.  
 Scambiamo l’ingresso di una gioielleria per quello dello Strano Bar. Ad ingannarci è la fila di quattro-cinque persone fuori ad aspettare, non si capisce bene per cosa. Continua uguale anche nei giorni successivi ogni volta che ci passiamo davanti ma non troviamo mai modo di capire che aspettano.    
