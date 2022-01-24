@@ -7,22 +7,30 @@
 Io per capire come funziona li ho seguiti in queste loro "chiuse".  
 Spolier: non l'ho mica capito come fanno. 
 
-**ultimo aggiornamento 20.gen.2022**  
+**ultimo aggiornamento 24.gen.2022**  
 
 - [intro](https://cacioman.github.io/controcanto000.html)  
 - [sospensione](https://cacioman.github.io/controcanto010.html)    
+- que viva la OOP!   
+- thema 
 - [scrittura orale](https://cacioman.github.io/controcanto002.html)    
+- planning
 - [storie quasi vere](https://cacioman.github.io/controcanto001.html)  
+- ricerche e interviste  
 - [politically correct](https://cacioman.github.io/controcanto003.html)  
+- nomi, cose, città
+- il tecnico  
+- riscaldamento, affiatamento e altre trappole  
+- aiutini da casa e padri spirituali in cloud  
 - [exit strategy](https://cacioman.github.io/controcanto007.html)  
 - [mangiare, bere, uomo, donna](https://cacioman.github.io/controcanto008.html)  
+- quarta barricata  
 - [inciampi, lapsus e rimandi vari](https://cacioman.github.io/controcanto005.html)  
 - [sentissela calla](https://cacioman.github.io/controcanto004.html)  
+- svincoli  
 - [problem solving](https://cacioman.github.io/controcanto006.html)  
 - [convitato di pietra](https://cacioman.github.io/controcanto009.html)  
-- ecc ecc
-- ecc ecc
-
+- performare la performance  
 
 ---  
 [about me](https://about.me/cacioman)
