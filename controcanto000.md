@@ -9,7 +9,6 @@ Spolier: non l'ho mica capito come fanno.
 
 **ultimo aggiornamento 24.gen.2022**  
 
-- [intro](https://cacioman.github.io/controcanto000.html)  
 - [sospensione](https://cacioman.github.io/controcanto010.html)    
 - que viva la OOP!   
 - thema 
