@@ -31,6 +31,7 @@ Da fine dicembre '21 "Intera Rete" è in vendita anche a Frascati presso la [**l
 - su [instagram](https://www.instagram.com/InteraRete/) trovate quasi tutte le foto dell'archivio (diciamo gli ultimi 8-9 anni)    
 
 **se ne parla qui**  
+- [ugo blog](https://ugofoto.blogspot.com/2022/01/piccole-storie-metropolitane.html)  (gen22)  
 - [ci si vede in giro](https://www.cisivedeingiro.com/giri-di-parole/intera-rete-cronache-metropolitane/) (ott21)  
 - [noc sensei](https://www.nocsensei.com/lente/talenti/admin4914/quattro-splendidi-libri/) (feb21)  
 - [new old camera](https://youtu.be/liLdrN-OhoY) (feb21)  
