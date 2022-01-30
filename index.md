@@ -1,5 +1,4 @@
-
-- microblogging [Telegram](https://t.me/s/cacioman)   
+  
 - [metodo Controcanto](https://cacioman.github.io/controcanto000.html): una specie di backstage di una residenza estiva, ancora in lavorazione  
 - [vedo gente, faccio code](https://tinyletter.com/cacioman/archive) una newsletter piuttosto saltuaria ([iscriversi qui](https://tinyletter.com/cacioman))  
 - [intera rete](https://cacioman.github.io/interarete.html): microstorie e foto dei miei viaggi da pendolare tra Frascati-Roma (epoca pre-COVID)  
