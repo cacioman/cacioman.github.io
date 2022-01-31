@@ -1,5 +1,4 @@
-# cacioman  
-### microstorie e altri appunti   
+# microstorie e altri appunti   
 
 **20.gen**: [sospensione](https://cacioman.github.io/controcanto010.html) - della serie "metodo controcanto"  
 
