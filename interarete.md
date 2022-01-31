@@ -2,9 +2,9 @@
 #### cronache metropolitane   
 
 
-![](/IR-facsimile-libro.jpg "Intera Rete - bozza" )
+[![](https://64.media.tumblr.com/7fcf2290188fe0ea8bf2e70cc7f7b69a/1fc8eac3fe44334f-20/s500x750/a4dfd63fe3a24173f8a9732dad2de857ca7946f1.png "Intera Rete - book trailer" )](https://youtu.be/brnGlXThfag)
 
-**dove si parla di**  
+**cosa racconta "Intera Rete"**  
 Ministeriali di concetto, pensionati eroici, stranieri quasi integrati, turisti Indiana Jones, studenti in chat, cani con padrone al guinzaglio, marzialissimi vigilantes, autisti spallati, homeless organizzati, bipolari ciarlieri, badanti infagottate, operai impolverati, promoter su di giri, madri esaurite, professionisti azzimati e via così. 
 
 L'incasinatissima rete dei mezzi pubblici romani per me è stata sopratutto un gran via vai di facce che, fino al COVID, si ammassavano tutte insieme, tutti i giorni, con mansueta regolarità.  
