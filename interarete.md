@@ -1,8 +1,11 @@
-# Intera Rete  
-#### cronache metropolitane   
+# Intera Rete    
 
+---  
 
-[![](https://64.media.tumblr.com/7fcf2290188fe0ea8bf2e70cc7f7b69a/1fc8eac3fe44334f-20/s500x750/a4dfd63fe3a24173f8a9732dad2de857ca7946f1.png "Intera Rete - book trailer" )](https://youtu.be/brnGlXThfag)
+[![](https://64.media.tumblr.com/7fcf2290188fe0ea8bf2e70cc7f7b69a/1fc8eac3fe44334f-20/s500x750/a4dfd63fe3a24173f8a9732dad2de857ca7946f1.png "Intera Rete - book trailer" )](https://youtu.be/brnGlXThfag)   
+
+---  
+
 
 **cosa racconta "Intera Rete"**  
 Ministeriali di concetto, pensionati eroici, stranieri quasi integrati, turisti Indiana Jones, studenti in chat, cani con padrone al guinzaglio, marzialissimi vigilantes, autisti spallati, homeless organizzati, bipolari ciarlieri, badanti infagottate, operai impolverati, promoter su di giri, madri esaurite, professionisti azzimati e via così. 
@@ -21,7 +24,7 @@ Per fare un ordine mandatemi una mail su [cacioman@gmail.com](mailto::cacioman@g
 Da fine dicembre '21 "Intera Rete" è in vendita anche a Frascati presso la [**libreria Cavour Frascati UBIK**](https://www.facebook.com/libreria.frascati.cavour) . 15 euro e passa la paura.  
 
 ---  
-**puoi leggerlo on line o scaricarlo qui:**  
+**dove leggerlo o scaricarlo (gratis)**  
 - [google docs](https://docs.google.com/document/d/1PV7WbbdWiHOb4LGqKyP_v74guc3X_x8mVvlGyGiRBqY/edit?usp=sharing)  
 - [webpages](https://docs.google.com/document/d/e/2PACX-1vQRwiANaom26EhtbYZtutYeL-2fAjymjrPLMVab8JFhXCJS-6tZhbRlzBT5uN64oruOdjbD5KI3Oofl/pub)  
 - [pdf](https://drive.google.com/file/d/1_DByHcB7XwEvOEKSn8o94STRQoVUqiLo/view?usp=sharing) 
