@@ -13,7 +13,7 @@ Spolier: non l'ho mica capito come fanno.
 - que viva la OOP!   
 - thema 
 - [scrittura orale](https://cacioman.github.io/controcanto002.html)    
-- planning
+- [planning](https://cacioman.github.io/controcanto012.html)    
 - [storie quasi vere](https://cacioman.github.io/controcanto001.html)  
 - ricerche e interviste  
 - [politically correct](https://cacioman.github.io/controcanto003.html)  
