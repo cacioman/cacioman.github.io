@@ -7,9 +7,9 @@
 Io per capire come funziona li ho seguiti in queste loro "chiuse".  
 Spolier: non l'ho mica capito come fanno. 
 
-**ultimo aggiornamento 24.gen.2022**  
+**ultimo aggiornamento 4.feb.2022**  
 
-- [sospensione](https://cacioman.github.io/controcanto010.html)    
+- [straniamento](https://cacioman.github.io/controcanto010.html)    
 - que viva la OOP!   
 - thema 
 - [scrittura orale](https://cacioman.github.io/controcanto002.html)    
@@ -23,7 +23,7 @@ Spolier: non l'ho mica capito come fanno.
 - aiutini da casa e padri spirituali in cloud  
 - [exit strategy](https://cacioman.github.io/controcanto007.html)  
 - [mangiare, bere, uomo, donna](https://cacioman.github.io/controcanto008.html)  
-- quarta barricata  
+- [quarta barricata](https://cacioman.github.io/controcanto011.html)  
 - [inciampi, lapsus e rimandi vari](https://cacioman.github.io/controcanto005.html)  
 - [sentissela calla](https://cacioman.github.io/controcanto004.html)  
 - svincoli  
