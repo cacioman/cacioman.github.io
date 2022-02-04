@@ -1,4 +1,4 @@
-# sospensione  
+# straniamento  
 
 [![](https://live.staticflickr.com/65535/51794353879_3ace2b700b_c.jpg "empoli - rotonda")](https://flic.kr/s/aHBqjzwAJ2)   
 
@@ -6,7 +6,7 @@ Rimasti bloccati a Firenze-Signa, arriviamo dai Controcanto per l’ora del caff
 Scambiamo l’ingresso di una gioielleria per quello dello Strano Bar. Ad ingannarci è la fila di quattro-cinque persone fuori ad aspettare, non si capisce bene per cosa. Continua uguale anche nei giorni successivi ogni volta che ci passiamo davanti ma non troviamo mai modo di capire che aspettano.    
 Lo Strano Bar invece è abbastanza vuoto. C’è solo una coppia di anziani un po’ sul *borderline* che mangia una pasta al pomodoro, entrambi lentissimi e molto concentrati in questa operazione. L’atmosfera è quella della casa famiglia. Invece si scopre che quei due vecchini sono i padroni del bar e che devono essere proprio loro ad aver istruito i dipendenti a centellinare le bustine dello zucchero per il caffè (prima ti chiedono quante ne vuoi e poi te le passano sospettosi una alla volta prendendole da sotto il bancone). Non si capisce se è semplice spilorceria o l'applicazione distorta di qualche normativa antiCOVID (sarebbe più rassicurante la prima).     
 Vista da qui sembra una Toscana scarsamente ubertosa e rinascimentale, potrebbe essere Milano Marittima d’inverno o Spinaceto ad agosto: poca gente, solo qualche bici, un ragazzo col piede pesante alla guida di una Punto sfondata, una signora col carrellino della spesa e un’altra pianin pianino col suo deambulatore.  
-Diamo inizio alla nostra residenza. Modalità sospensione. 
+Diamo inizio alla nostra residenza. Modalità straniamento. 
 
 ---   
 [metodo controcanto](https://cacioman.github.io/controcanto000.html) - [about me](https://about.me/cacioman) 
