@@ -26,7 +26,7 @@ Spolier: non l'ho mica capito come fanno.
 - [quarta barricata](https://cacioman.github.io/controcanto011.html)  
 - [inciampi, lapsus e rimandi vari](https://cacioman.github.io/controcanto005.html)  
 - [sentissela calla](https://cacioman.github.io/controcanto004.html)  
-- [svincoli](https://cacioman.github.io/controcanto012.html)  
+- [svincoli](https://cacioman.github.io/controcanto013.html)  
 - [problem solving](https://cacioman.github.io/controcanto006.html)  
 - [convitato di pietra](https://cacioman.github.io/controcanto009.html)  
 - performare la performance  
