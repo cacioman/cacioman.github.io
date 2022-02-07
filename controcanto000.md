@@ -19,7 +19,7 @@ Spolier: non l'ho mica capito come fanno.
 - [politically correct](https://cacioman.github.io/controcanto003.html)  
 - nomi, cose, città
 - il tecnico  
-- riscaldamento, affiatamento e altre trappole  
+- [riscaldamento, affiatamento e altre trappole](https://cacioman.github.io/controcanto014.html)  
 - aiutini da casa e padri spirituali in cloud  
 - [exit strategy](https://cacioman.github.io/controcanto007.html)  
 - [mangiare, bere, uomo, donna](https://cacioman.github.io/controcanto008.html)  
