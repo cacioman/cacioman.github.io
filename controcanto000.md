@@ -7,7 +7,7 @@
 Io per capire come funziona li ho seguiti in queste loro "chiuse".  
 Spolier: non l'ho mica capito come fanno. 
 
-**ultimo aggiornamento 4.feb.2022**  
+**ultimo aggiornamento 7.feb.2022**  
 
 - [straniamento](https://cacioman.github.io/controcanto010.html)    
 - que viva la OOP!   
@@ -26,7 +26,7 @@ Spolier: non l'ho mica capito come fanno.
 - [quarta barricata](https://cacioman.github.io/controcanto011.html)  
 - [inciampi, lapsus e rimandi vari](https://cacioman.github.io/controcanto005.html)  
 - [sentissela calla](https://cacioman.github.io/controcanto004.html)  
-- svincoli  
+- [svincoli](https://cacioman.github.io/controcanto012.html)  
 - [problem solving](https://cacioman.github.io/controcanto006.html)  
 - [convitato di pietra](https://cacioman.github.io/controcanto009.html)  
 - performare la performance  
