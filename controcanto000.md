@@ -29,7 +29,7 @@ Spolier: non l'ho mica capito come fanno.
 - [svincoli](https://cacioman.github.io/controcanto013.html)  
 - [problem solving](https://cacioman.github.io/controcanto006.html)  
 - [convitato di pietra](https://cacioman.github.io/controcanto009.html)  
-- performare la performance  
+- [grand final](https://cacioman.github.io/controcanto016.html)  
 
 ---  
 [about me](https://about.me/cacioman)
