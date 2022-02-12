@@ -2,7 +2,7 @@
 
 [![](https://live.staticflickr.com/65535/51791908897_11f8806d29_c.jpg "barberino - esito")](https://flic.kr/s/aHBqjzwAJ2)   
 
-Alla fine arriva il giorno concordato per recitare una “prima ante-prima” (senza scenografie e costumi) al gruppo che segue le residenze artistiche toscane.  
+Alla fine arriva il giorno concordato per recitare una “prima ante-prima” al gruppo che segue le residenze artistiche toscane (ma senza scenografie, musica e costumi) .  
 Come gli atleti, i Controcanto sentono la *performance* e vanno meglio che in allenamento: quelli che non azzeccavano le entrate ora le azzeccano, chi parlava sottovoce ora usa il tono giusto, chi svagava ora rimane più concentrato, nessuno ammicca con nessuno e ognuno fa il suo.   
 Che l’atmosfera sia diversa dal solito se ne accorge anche il *cane-sovranista*: è rimasto svaccato in mezzo al palco per tutte le prove (aprendo svogliatamente un occhio ma solo quando i Controcanto accennavano ad un scazzo, di quelli veri e non di quelli del copione) e ora prende a guaire dopo solo cinque minuti dall'inizio.  
 Decido di trascinarlo via ma stiamo su un *golfo mistico* paiolato, a due metri sia da chi recita che da chi ascolta, tutto rimbomba e il *cane-sovranista* recalcitra. Provo ad incollarmelo ma con poca disinvoltura. Il tempo mi si dilata, sembrava più facile. In compenso siamo abbastanza silenziosi. Silenziosi e molto seri, una cosa alla Buster Keaton diciamo. Quando sembra fatta capisco che gli scalini solo al buio, ci si vede poco, penso al mio corpaccione sovrappeso: se casco faccio un buco nel pavimento. Invece mi salvo. Usciamo fuori.  
