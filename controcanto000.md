@@ -10,7 +10,7 @@ Spolier: non l'ho mica capito come fanno.
 **ultimo aggiornamento 13.feb.2022**  
 
 - [straniamento](https://cacioman.github.io/controcanto010.html)    
-- [Què viva la COOP!](https://cacioman.github.io/controcanto018.html)    
+- [què viva la COOP!](https://cacioman.github.io/controcanto018.html)    
 - thema 
 - [scrittura orale](https://cacioman.github.io/controcanto002.html)    
 - [planning](https://cacioman.github.io/controcanto012.html)    
