@@ -7,7 +7,7 @@
 Io per capire come funziona li ho seguiti in queste loro "chiuse".  
 Spolier: non l'ho mica capito come fanno. 
 
-**ultimo aggiornamento 12.feb.2022**  
+**ultimo aggiornamento 13.feb.2022**  
 
 - [straniamento](https://cacioman.github.io/controcanto010.html)    
 - que viva la OOP!   
@@ -18,7 +18,7 @@ Spolier: non l'ho mica capito come fanno.
 - ricerche e interviste  
 - [politically correct](https://cacioman.github.io/controcanto003.html)  
 - nomi, cose, città
-- il tecnico  
+- [il tecnico](https://cacioman.github.io/controcanto003.html)  
 - [riscaldamento, affiatamento e altre trappole](https://cacioman.github.io/controcanto014.html)  
 - [aiutini da casa e padri spirituali in cloud](https://cacioman.github.io/controcanto015.html)  
 - [exit strategy](https://cacioman.github.io/controcanto007.html)  
