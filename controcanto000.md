@@ -7,7 +7,7 @@
 Io per capire come funziona li ho seguiti in queste loro "chiuse".  
 Spolier: non l'ho mica capito come fanno. 
 
-**ultimo aggiornamento 13.feb.2022**  
+**ultimo aggiornamento 22.feb.2022**  
 
 - [straniamento](https://cacioman.github.io/controcanto010.html)    
 - [què viva la COOP!](https://cacioman.github.io/controcanto018.html)    
@@ -18,7 +18,7 @@ Spolier: non l'ho mica capito come fanno.
 - ricerche e interviste  
 - [politically correct](https://cacioman.github.io/controcanto003.html)  
 - nomi, cose, città  
-- il vernacolo no, non l'avevo considerato  
+- [il vernacolo no, non l'avevo considerato](https://cacioman.github.io/controcanto019.html)  
 - [il tecnico](https://cacioman.github.io/controcanto017.html)  
 - [riscaldamento, affiatamento e altre trappole](https://cacioman.github.io/controcanto014.html)  
 - [aiutini da casa e padri spirituali in cloud](https://cacioman.github.io/controcanto015.html)  
