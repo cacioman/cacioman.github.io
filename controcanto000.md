@@ -18,7 +18,7 @@ Spolier: non l'ho mica capito come fanno.
 - ricerche e interviste  
 - [politically correct](https://cacioman.github.io/controcanto003.html)  
 - nomi, cose, città  
-- [il vernacolo no, non l'avevo considerato](https://cacioman.github.io/controcanto019.html)  
+- [il vernacolo no non l'avevo considerato](https://cacioman.github.io/controcanto019.html)  
 - [il tecnico](https://cacioman.github.io/controcanto017.html)  
 - [riscaldamento, affiatamento e altre trappole](https://cacioman.github.io/controcanto014.html)  
 - [aiutini da casa e padri spirituali in cloud](https://cacioman.github.io/controcanto015.html)  
