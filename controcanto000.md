@@ -11,7 +11,7 @@ Spolier: non l'ho mica capito come fanno.
 
 - [straniamento](https://cacioman.github.io/controcanto010.html)    
 - [què viva la COOP!](https://cacioman.github.io/controcanto018.html)    
-- thema 
+- [thema](https://cacioman.github.io/controcanto022.html)    
 - [scrittura orale](https://cacioman.github.io/controcanto002.html)    
 - [planning](https://cacioman.github.io/controcanto012.html)    
 - [storie quasi vere](https://cacioman.github.io/controcanto001.html)  
