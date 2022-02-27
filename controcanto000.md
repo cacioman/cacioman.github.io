@@ -15,7 +15,7 @@ Spolier: non l'ho mica capito come fanno.
 - [scrittura orale](https://cacioman.github.io/controcanto002.html)    
 - [planning](https://cacioman.github.io/controcanto012.html)    
 - [storie quasi vere](https://cacioman.github.io/controcanto001.html)  
-- ricerche e interviste  
+- [ricerca sul campo](https://cacioman.github.io/controcanto021.html)  
 - [politically correct](https://cacioman.github.io/controcanto003.html)  
 - [nomi, cose, città](https://cacioman.github.io/controcanto021.html)   
 - [il vernacolo no non l'avevo considerato](https://cacioman.github.io/controcanto019.html)  
