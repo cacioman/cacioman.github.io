@@ -7,7 +7,7 @@
 Io per capire come funziona li ho seguiti in queste loro "chiuse".  
 Spolier: non l'ho mica capito come fanno. 
 
-**ultimo aggiornamento 22.feb.2022**  
+**ultimo aggiornamento 27.feb.2022**  
 
 - [straniamento](https://cacioman.github.io/controcanto010.html)    
 - [què viva la COOP!](https://cacioman.github.io/controcanto018.html)    
