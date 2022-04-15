@@ -21,7 +21,7 @@ Coperti i costi di stampa, **il resto del ricavato lo mandiamo agli amici di [Ba
 
 Per fare un ordine mandatemi una mail su [cacioman@gmail.com](mailto::cacioman@gmail.com). Spedisco con Poste Italiane (che è lenta ma inesorabile), pagherete dopo la consegna (con bonifico o [PayPal](https://www.paypal.me/ClaudioGatti)). Se poi siete in zona Roma Sud e vi va di fare due chiacchiere (opportunamente distanziati), consegno anche a mano.  
 
-Da fine dicembre '21 "Intera Rete" è in vendita anche a Frascati presso la [**libreria Cavour Frascati UBIK**](https://www.facebook.com/libreria.frascati.cavour) . 15 euro e passa la paura.  
+Frascatani, RomaSuddisti e castellani tutti: da gennaio "Intera Rete" è in vendita anche a Frascati presso la [**libreria Cavour Frascati UBIK**](https://www.facebook.com/libreria.frascati.cavour) (15 euro e passa la paura) e da aprile è anche disponibile in prestito bibliotecario presso [**la Bibliteca Comunale Carlo Del Vescovo**](https://goo.gl/maps/H5r5x6QXrAq1rRXQA) (indimenticato maestro/bibliotecario tuscolano nonchè sosia di Enzo Bearzot).  
 
 ---  
 **dove leggerlo o scaricarlo (gratis)**  
