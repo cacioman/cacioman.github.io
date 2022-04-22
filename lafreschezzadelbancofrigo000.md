@@ -7,7 +7,7 @@ bla bla bla
 - ...
 - episodio n
 
-["qui trovi il documento completo"](https://docs.google.com/document/d/14rglPC9q64zJUiYVgoQE4SUF1wMnMvcYsZO1aJLP9ao/edit?usp=sharing)  
+clickando questo link trovi [il documento completo](https://docs.google.com/document/d/14rglPC9q64zJUiYVgoQE4SUF1wMnMvcYsZO1aJLP9ao/edit?usp=sharing)  
 
 ---    
 [about me](https://about.me/cacioman)   
