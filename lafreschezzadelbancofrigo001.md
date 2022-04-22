@@ -5,4 +5,4 @@
 bla bla bla bla bla  
 
 ---    
-[about me](https://about.me/cacioman) - ["con tutta la freschezza del banco frigo"](https://cacioman.github.io/lafreschezzadelbancofrigo000.html)  
+[about me](https://about.me/cacioman) - [con tutta la freschezza del banco frigo](https://cacioman.github.io/lafreschezzadelbancofrigo000.html)  
