@@ -13,7 +13,7 @@ Qui trovate il documento da leggere :
 
 Se siete interesati alle altre foto che non ho usato, [le trovate qui](https://www.flickr.com/gp/cacioman/fPVsp9). 
 
-A giugno spero di stamparlo in forma di fanzine grazie a Lorenzo di  [Studio Volodia](https://www.instagram.com/studiovolodja/)
+A giugno spero di stamparlo in forma di fanzine grazie a Lorenzo Caleca di  [Studio Volodja](https://www.instagram.com/studiovolodja/)
 
 ---    
 [about me](https://about.me/cacioman)  
