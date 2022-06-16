@@ -11,9 +11,7 @@ Qui trovate il documento da leggere :
 - in formato [Google DOC](https://docs.google.com/document/d/1QjlGbO58h9rhIr9l7X8WWTYCTQ0CrEAEWS8Ep1nxfoQ/edit?usp=sharing)  
 - in formato [Web Pages](https://docs.google.com/document/d/e/2PACX-1vSyZlDuW2P9U75r0qg5rkLg99laBPE4ktJW7pDCbfDPm_cPkP0uV8OdeTEUxDhjHjoqju-9kKVUBd_J/pub)  
 
-Se siete interesati alle altre foto che non ho usato, [le trovate qui](https://www.flickr.com/gp/cacioman/fPVsp9). 
-
-A breve (giugno spero) conto di stampare "Metodo Controcanto" in forma di fanzine, grazie a Lorenzo Caleca di [Studio Volodja](https://www.instagram.com/studiovolodja/)
+Se siete interesati alle altre foto che non ho usato, [le trovate qui](https://www.flickr.com/gp/cacioman/fPVsp9).  
 
 ---    
 [about me](https://about.me/cacioman)  
