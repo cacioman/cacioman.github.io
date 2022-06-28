@@ -1,6 +1,6 @@
 # linktree   
 
-**new articles**  
+**ultime uscite**  
 - 18-giu: [Tolkien](https://cacioman.github.io/ingiro-w22y22-tolkien.html)
 
 **archivio**  
