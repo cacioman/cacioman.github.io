@@ -1,8 +1,6 @@
-**ultimi usciti**: [Tolkien](https://cacioman.github.io/ingiro-w22y22-tolkien.html) (18 giu)
+**per le ultime uscite** andare su [**linktree**](https://linktr.ee/cacioman)
 
-**ancora online**: [metodo controcanto](https://cacioman.github.io/MetodoControcanto.html) - [intera rete](https://cacioman.github.io/interarete.html)  
-
-**per rimanere aggiornati**: [twitter](https://twitter.com/cacioman) - [facebook](https://www.facebook.com/ClaudioGatti63) - [blogger](https://cacioman.blogspot.com/) - [rss](http://feeds2.feedburner.com/cacioman) - [newsletter](https://tinyletter.com/cacioman)- [telegram](https://t.me/s/cacioman) - [instagram](https://www.instagram.com/cacioman63/) - [whats app](whatsappQRcode.jpg) - [linktree](https://linktr.ee/cacioman?subscribe)
+**per rimanere aggiornati** usare: [twitter](https://twitter.com/cacioman) - [facebook](https://www.facebook.com/ClaudioGatti63) - [blogger](https://cacioman.blogspot.com/) - [rss](http://feeds2.feedburner.com/cacioman) - [newsletter](https://tinyletter.com/cacioman)- [telegram](https://t.me/s/cacioman) - [instagram](https://www.instagram.com/cacioman63/) - [whats app](whatsappQRcode.jpg) - [linktree](https://linktr.ee/cacioman?subscribe)
 
 ---    
 [about me](https://about.me/cacioman) 
