@@ -5,8 +5,6 @@
 
 **ancora in archivio** : [metodo controcanto](https://cacioman.github.io/MetodoControcanto.html), [intera rete](https://cacioman.github.io/interarete.html)
 
-**per rimanere aggiornati** : [twitter](https://twitter.com/cacioman) - [facebook](https://www.facebook.com/ClaudioGatti63) - [blogger](https://cacioman.blogspot.com/) - [newsletter](https://tinyletter.com/cacioman) - [instagram](https://www.instagram.com/cacioman63/)
-
 ---    
 [about me](https://about.me/cacioman) 
 
