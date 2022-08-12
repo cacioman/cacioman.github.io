@@ -30,7 +30,7 @@ Frascatani, RomaSuddisti e castellani tutti: da gennaio "Intera Rete" è in vend
 
 **archivio foto e letture**  
 - [questo il canale YouTube](https://www.youtube.com/channel/UC8B2bq3VdPtSeLzryWwNAlQ) con le videoletture di Daniela Margherita 
-- su [instagram](https://www.instagram.com/InteraRete/) trovate quasi tutte le foto dell'archivio (diciamo gli ultimi 8-9 anni)    
+- su [instagram](https://www.instagram.com/InteraRete/) o su [flickr]() trovate quasi tutte le foto dell'archivio (diciamo gli ultimi 8-9 anni)    
 
 **se ne parla qui**  
 - [ugo blog](https://ugofoto.blogspot.com/2022/01/piccole-storie-metropolitane.html)  (gen22)  
