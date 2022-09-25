@@ -1,6 +1,6 @@
 ![](indexcover0822.jpg "Cortona - proprio lui")  
 
-**14 agosto** : la strisciata di foto del [fotoblog](https://photos.app.goo.gl/9B2C9P4ipUgdqWrz9)  
+**14 agosto** : la strisciata di foto del [fotoblog](https://flickr.com/photos/cacioman/)  
 **8 agosto** : video insulso sul [bagnasciuga a Terracina](https://youtu.be/lqRgqm49z1U)  
 **8 agosto** : Leggere l'Orestea a Rebibbia su "[gli Asini](https://gliasinirivista.org/leggere-lorestea-a-rebibbia/)"    
 **26 luglio** : [Leggere l’Orestea a Rebibbia](https://docs.google.com/document/d/1gUJ1HJ9AseuFecQ_CTNzu6HjrihQdxtAUjQ7g-ZI2vE/edit?usp=sharing)  
