@@ -1,6 +1,6 @@
 ![](indexcover0822.jpg "Cortona - proprio lui")  
 
-**4 nov** : presentazione di "Intera Rete" a Frascati, [SAVE TEHE DATE](https://cacioman.blogspot.com/2022/10/save-date.html)  
+**4 nov** : presentazione di "Intera Rete" a Frascati, [SAVE THE DATE](https://cacioman.blogspot.com/2022/10/save-date.html)  
 **28 set** : laboratorio di fotoracconto [storie di tutti](https://forms.gle/HZbWpqwVBYZN43Sd9) ad Albano Laziale  
 **14 ago** : la strisciata di foto del [fotoblog](https://flickr.com/photos/cacioman/)  
 **8 ago** : video insulso sul [bagnasciuga a Terracina](https://youtu.be/lqRgqm49z1U)  
