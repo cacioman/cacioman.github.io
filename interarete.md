@@ -29,7 +29,7 @@ Frascatani, RomaSuddisti e castellani tutti: da gennaio "Intera Rete" è in vend
 - [pdf](https://drive.google.com/file/d/1_DByHcB7XwEvOEKSn8o94STRQoVUqiLo/view?usp=sharing) 
 
 **archivio foto e letture**  
-- [questo il canale YouTube](https://www.youtube.com/channel/UC8B2bq3VdPtSeLzryWwNAlQ) con le videoletture di Daniela Margherita 
+- [questo il canale YouTube](https://www.youtube.com/@allontanarsidallalineagialla) con le videoletture di Daniela Margherita 
 - su [instagram](https://www.instagram.com/InteraRete/) o su [flickr](https://flic.kr/s/aHBqjA2JW5) trovate quasi tutte le foto dell'archivio (diciamo gli ultimi 8-9 anni)    
 
 **se ne parla qui**  
