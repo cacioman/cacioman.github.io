@@ -2,10 +2,8 @@
  # storie brevi  
 
 progetti in corso:
+- **con tutta la freschezza del banco frigo**: sarebbe a dire un altro Marcolvaldo ma appesantito e piuttosto boomer  
 
-- **con tutta la freschezza del banco frigo**: un altro Marcolvaldo, appesantito e boomer  
-- **metamorfosi** 
-- **camerieri**  
 
 progetti finiti:
 - [**leggere l'Orestea a Rebibbia**](https://docs.google.com/document/d/1gUJ1HJ9AseuFecQ_CTNzu6HjrihQdxtAUjQ7g-ZI2vE/edit?usp=share_link): cosa ti combinano i tragici greci in carcere (scritto per un laboratorio di reportage tenuto da Annalisa Camilli)
