@@ -1,5 +1,5 @@
- 
- # storie brevi  
+
+# storie brevi  
 
 progetti in corso:
 - **con tutta la freschezza del banco frigo**: sarebbe a dire un altro Marcolvaldo ma appesantito e piuttosto boomer  
