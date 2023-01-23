@@ -21,7 +21,7 @@ Coperti i costi di stampa, **il resto del ricavato lo mandiamo agli amici di [Ba
 
 Per fare un ordine mandatemi una mail su [cacioman@gmail.com](mailto::cacioman@gmail.com). Spedisco con Poste Italiane (che è lenta ma inesorabile), pagherete dopo la consegna (con bonifico o [PayPal](https://www.paypal.me/ClaudioGatti)). Se poi siete in zona Roma Sud e vi va di fare due chiacchiere (opportunamente distanziati), consegno anche a mano.  
 
-Frascatani, RomaSuddisti e castellani tutti: da gennaio "Intera Rete" è in vendita anche a Frascati presso la [**libreria Cavour Frascati UBIK**](https://www.facebook.com/libreria.frascati.cavour) (15 euro e passa la paura) e da aprile è anche disponibile in prestito bibliotecario presso [**la Bibliteca Comunale Carlo Del Vescovo**](https://goo.gl/maps/H5r5x6QXrAq1rRXQA) (indimenticato maestro/bibliotecario tuscolano nonchè sosia di Enzo Bearzot).  
+Frascatani, RomaSuddisti e castellani tutti: da gennaio "Intera Rete" è in vendita a Frascati presso la [**libreria Cavour Frascati UBIK**](https://www.facebook.com/libreria.frascati.cavour) e la [**Libreria Adeia Ubik Grottaferrata**](https://www.facebook.com/Adeialibri). Potete anche prenderne una copia come prestito bibliotecario a Frascati presso [**la Bibliteca Comunale Carlo Del Vescovo**](https://goo.gl/maps/H5r5x6QXrAq1rRXQA) o attravesro il sito del [**Sistema Bigliotecario dei Castelli Romani**](https://sbcr.comperio.it/).  
 
 ---  
 **dove leggerlo o scaricarlo (gratis)**  
@@ -31,6 +31,7 @@ Frascatani, RomaSuddisti e castellani tutti: da gennaio "Intera Rete" è in vend
 **archivio foto e letture**  
 - [questo il canale YouTube](https://www.youtube.com/@allontanarsidallalineagialla) con le videoletture di Daniela Margherita 
 - su [instagram](https://www.instagram.com/InteraRete/) o su [flickr](https://flic.kr/s/aHBqjA2JW5) trovate quasi tutte le foto dell'archivio (diciamo gli ultimi 8-9 anni)    
+- [presentazioni e incontri](https://photos.app.goo.gl/P8FyyW4iFthruzz79) 
 
 **se ne parla qui**  
 - [ugo blog](https://ugofoto.blogspot.com/2022/01/piccole-storie-metropolitane.html)  (gen22)  
@@ -43,6 +44,7 @@ Frascatani, RomaSuddisti e castellani tutti: da gennaio "Intera Rete" è in vend
 - [lettori accaniti](https://youtu.be/mYt2Ns11YoA) 
 - [idee regalo](https://youtu.be/brnGlXThfag)     
 - [book triler di "ci si vede in giro"](https://youtu.be/fOOXviO-kMg)  
+ 
 
 ---    
 [about me](https://about.me/cacioman)  
