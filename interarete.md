@@ -21,7 +21,7 @@ Coperti i costi di stampa, **il resto del ricavato lo mandiamo agli amici di [Ba
 
 Per fare un ordine mandatemi una mail su [cacioman@gmail.com](mailto::cacioman@gmail.com). Spedisco con Poste Italiane (che è lenta ma inesorabile), pagherete dopo la consegna (con bonifico o [PayPal](https://www.paypal.me/ClaudioGatti)). Se poi siete in zona Roma Sud e vi va di fare due chiacchiere (opportunamente distanziati), consegno anche a mano.  
 
-Frascatani, Grotaferratesi e castellani tutti: "Intera Rete" è in vendita a Frascati presso la [**libreria Cavour UBIK**](https://www.facebook.com/libreria.frascati.cavour) e a Grottaferrata presso [**Libreria Adeia Ubik**](https://www.facebook.com/Adeialibri). In ogni caso potete prenderne una copia come prestito bibliotecario a Frascati direttamente presso [**la Bibliteca Comunale Carlo Del Vescovo**](https://goo.gl/maps/H5r5x6QXrAq1rRXQA) o attravesro il sito del [**Sistema Bigliotecario dei Castelli Romani**](https://sbcr.comperio.it/).  
+Frascatani, Grotaferratesi e castellani tutti: "Intera Rete" è in vendita a Frascati presso la [**libreria Cavour UBIK**](https://www.facebook.com/libreria.frascati.cavour) e a Grottaferrata presso [**Libreria Adeia Ubik**](https://www.facebook.com/Adeialibri). In ogni caso potete prenderne una copia come prestito bibliotecario a Frascati direttamente presso [**la Bibliteca Comunale Carlo Del Vescovo**](https://goo.gl/maps/H5r5x6QXrAq1rRXQA) o attraverso il sito del [**Sistema Bibliotecario dei Castelli Romani**](https://sbcr.comperio.it/).  
 
 ---  
 **dove leggerlo o scaricarlo (gratis)**  
