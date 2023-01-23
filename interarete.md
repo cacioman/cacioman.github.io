@@ -42,6 +42,7 @@ Frascatani, RomaSuddisti e castellani tutti: da gennaio "Intera Rete" è in vend
 **book trailers**  
 - [lettori accaniti](https://youtu.be/mYt2Ns11YoA) 
 - [idee regalo](https://youtu.be/brnGlXThfag)     
+- [book triler di "ci si vede in giro"](https://youtu.be/fOOXviO-kMg)  
 
 ---    
 [about me](https://about.me/cacioman)  
