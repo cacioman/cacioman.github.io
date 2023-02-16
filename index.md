@@ -1,6 +1,6 @@
 
 ### ultime uscite :
-15feb23 - ho letto ["**Storie vere**"](loq-230215-0101.md) di Sophie Calle: è molto breve, da comprare   
+- 15feb23 - ho letto ["**Storie vere**"](loq-230215-0101.md) di Sophie Calle: è molto breve ed è da comprare   
 
 ### ancora in linea :
 - [**leggere l'Orestea a Rebibbia**](https://docs.google.com/document/d/1gUJ1HJ9AseuFecQ_CTNzu6HjrihQdxtAUjQ7g-ZI2vE/edit?usp=share_link): cosa ti combinano i tragici greci in carcere (scritto per un laboratorio di reportage tenuto da Annalisa Camilli)
