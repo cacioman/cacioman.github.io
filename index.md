@@ -1,5 +1,6 @@
 
 ### ultime uscite :
+- 19feb23 - [**Frascati, arrivo treno** (con selfie)](https://youtube.com/playlist?list=PLGB9DoD4rkOvuwftOafkz62ESuNB3sWlh) della serie #VideoInsulsi
 - 15feb23 - ho letto ["**Storie vere**"](loq-230215-0101.md) di Sophie Calle: è molto breve ed è da comprare   
 
 ### ancora in linea :
