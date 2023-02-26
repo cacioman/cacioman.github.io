@@ -12,7 +12,7 @@
 ### archivi
 - [**video insulsi**](https://www.youtube.com/@ClaudioGatti44): veramente insulsi ma almeno anche molto molto corti  
 - [**fotoblog**](https://flickr.com/photos/cacioman/): la strisciata di foto mano mano che le faccio     
-- [**shared post**](https://t.me/+WBWm4SRa4srL3jVQ): post che trovo in rete e che ripubblico come link (poi dopo un po' cancello tutto)    
+- [**shared post**](https://t.me/s/guazzabuglione): post che trovo in rete e che ripubblico come link (poi dopo un po' cancello tutto)    
 
 ---    
 [about me](https://about.me/cacioman) 
