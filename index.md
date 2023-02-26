@@ -1,5 +1,6 @@
 
 ### ultime uscite :
+- 26feb23 - ho ripreso ad alimentare [guazzabuglione](https://t.me/guazzabuglione) il mio canale Telegram di post accattati in rete
 - 24feb23 - [**Tuba Mirum**](ing-230224-0101.md): di un ricordo che ogni tanto mi scatta; della serie #ingiro      
 - 19feb23 - [**Frascati, arrivo treno** (con selfie)](https://youtube.com/playlist?list=PLGB9DoD4rkOvuwftOafkz62ESuNB3sWlh) della serie #VideoInsulsi
 - 15feb23 - ho letto ["**Storie vere**"](loq-230215-0101.md) di Sophie Calle: è molto breve ed è da comprare   
