@@ -1,9 +1,9 @@
 
 ### ultime uscite :
-- 26feb23 - ho ripreso ad alimentare [**guazzabuglione**](https://t.me/guazzabuglione) il mio canale Telegram di post accattati in rete
-- 24feb23 - [**Tuba Mirum**](ing-230224-0101.md): di un ricordo che ogni tanto mi scatta; della serie #ingiro      
-- 19feb23 - [**Frascati, arrivo treno** (con selfie)](https://youtube.com/playlist?list=PLGB9DoD4rkOvuwftOafkz62ESuNB3sWlh) della serie #VideoInsulsi
-- 15feb23 - ho letto ["**Storie vere**"](loq-230215-0101.md) di Sophie Calle: è molto breve ed è da comprare   
+- 26feb - ho ripreso ad alimentare [**guazzabuglione**](https://t.me/guazzabuglione) il mio canale Telegram di post accattati in rete
+- 24feb - [**Tuba Mirum**](ing-230224-0101.md): di un ricordo che ogni tanto mi scatta; della serie #ingiro      
+- 19feb - [**Frascati, arrivo treno** (con selfie)](https://youtube.com/playlist?list=PLGB9DoD4rkOvuwftOafkz62ESuNB3sWlh) della serie #VideoInsulsi
+- 15feb - ho letto ["**Storie vere**"](loq-230215-0101.md) di Sophie Calle: è molto breve ed è da comprare   
 
 ### ancora in linea :
 - [**leggere l'Orestea a Rebibbia**](https://docs.google.com/document/d/1gUJ1HJ9AseuFecQ_CTNzu6HjrihQdxtAUjQ7g-ZI2vE/edit?usp=share_link): cosa ti combinano i tragici greci in carcere (scritto per un laboratorio di reportage tenuto da Annalisa Camilli)
