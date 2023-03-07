@@ -2,7 +2,9 @@
 
 ![](navigareavista.jpg)
 
-Per sviluppare un mio progettino in un [laboratorio di foto narrazione](https://roma.officinefotografiche.org/corsi/metamorfosi/) sul tema della Metamorfosi, ho messo insieme  una selezione delle foto che ho fatto dalla pandemia ad oggi. Da una all'altra si passa con qualche aggancio di assonanza o di dissonanza, in più ci ho messo due note a didascalia per raccontare una metamorfosi, più o meno grande, che m'è capitata.  
+Per un [laboratorio di foto narrazione](https://roma.officinefotografiche.org/corsi/metamorfosi/) sul tema "Metamorfosi", ho raccolto una selezione di foto che ho fatto dalla pandemia.  
+E' una sequenza con una sua logica per passare da una foto alla successiva.  
+Ho aggiunto poi anche due righe per raccontare la metamorfosi, più o meno grande, che quelle immagini mi ricordano.    
 
 
 - [Twins](nav-230307-0101.md)
