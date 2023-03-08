@@ -7,19 +7,7 @@ Le immagini messe così [nello loro sequenza](https://flic.kr/s/aHBqjAuLZN) c'av
 
 ----  
 
-[![](https://live.staticflickr.com/65535/52732160916_9b550afa0d_m.jpg "twins")](nav-230307-0101.md)  
-[![](https://live.staticflickr.com/65535/52732644113_1996dd5937_m.jpg "capelli")](nav-230308-0301.md)  
-[![](https://live.staticflickr.com/65535/52732569805_1643eefb3c_m.jpg "baffone")](nav-230307-0301.md)  
-[![](https://live.staticflickr.com/65535/52732645188_9e88a11cb7_m.jpg "demografia 1")](nav-230308-0101.md)  
-[![](https://live.staticflickr.com/65535/52732573080_6e61276565_m.jpg "potatoes")](nav-230307-0201.md)  
-[![](https://live.staticflickr.com/65535/52732157881_686afbea53_m.jpg "aree interne")](nav-230308-0201.md)  
-
-- [twins](nav-230307-0101.md)
-- [capelli](nav-230308-0301.md)
-- [baffone](nav-230307-0301.md)
-- [demografia 1](nav-230308-0101.md)
-- [potatoes](nav-230307-0201.md)
-- [aree interne](nav-230308-0201.md)  
+[![](https://live.staticflickr.com/65535/52732160916_9b550afa0d_m.jpg "twins")](nav-230307-0101.md) [![](https://live.staticflickr.com/65535/52732644113_1996dd5937_m.jpg "capelli")](nav-230308-0301.md) [![](https://live.staticflickr.com/65535/52732569805_1643eefb3c_m.jpg "baffone")](nav-230307-0301.md) [![](https://live.staticflickr.com/65535/52732645188_9e88a11cb7_m.jpg "demografia 1")](nav-230308-0101.md) [![](https://live.staticflickr.com/65535/52732573080_6e61276565_m.jpg "potatoes")](nav-230307-0201.md) [![](https://live.staticflickr.com/65535/52732157881_686afbea53_m.jpg "aree interne")](nav-230308-0201.md)  
 
 ---    
 [about me](https://about.me/cacioman)  
