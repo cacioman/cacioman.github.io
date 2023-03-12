@@ -517,10 +517,10 @@ Ero ragazzino sei o otto anni, con mia sorella a casa di altri ragazzini coetane
 
 ![](https://live.staticflickr.com/65535/52732157881_686afbea53_z.jpg "Lucera, estate")  
 
-San Lorenzo. Trattoria. Al tavolo accanto al nostro c’è un ragazzo che parla ad alta voce. Dice che con la scuola di scrittura va alla grande: gli hanno dato solo ‘sto compito che sulle prime non sapeva come fare ma poi s’era messo sotto scrivendo delle sagre del paese della madre in Molise, un buco in culo alla luna così piccolo che se te dico il nome te lo scordi subito. Dice che ha fatto quattro pagine fitte-fitte, tutte totalmente inventate che manco Tolkien ce riusciva. Erano così buone che poi il professore ha pure chiamato a casa per parlare con la madre e chiedere di ‘sto paesino - non si ricordava più il nome - se c'erano altri documenti, fotografie ché come tradizioni sono particolarissime. Al telefono la madre era stata molto ossequiosa “certo, si figuri, non mancherò, gentilissimo, ricambio” ma poi come ha abbassato gli fa al figlio: “oh ma che cazzo gli hai raccontato a ‘sto coglione?!” 
+San Lorenzo. Trattoria. Al tavolo accanto al nostro c’è un ragazzo che parla ad alta voce. Dice che con la scuola di scrittura va alla grande: gli hanno dato solo ‘sto compito che sulle prime non sapeva come fare ma poi s’era messo sotto scrivendo delle sagre del paese della madre in Molise, un buco in culo alla luna così piccolo che se te dico il nome te lo scordi subito. Dice che ha fatto quattro pagine fitte-fitte, tutte totalmente inventate che manco Tolkien ce riusciva. Erano così buone che poi il professore ha pure chiamato a casa per parlare con la madre e chiedere di ‘sto paesino - non si ricordava più il nome - se c'erano altri documenti, fotografie ché come tradizioni sono particolarissime. Al telefono la madre era stata molto ossequiosa “certo, si figuri, non mancherò, gentilissimo, ricambio” ma poi come ha abbassato gli fa al figlio: “oh ma che cazzo gli hai raccontato a ‘sto coglione?!”  
 
 ---  
-### 65. stesa        
+### 65. stesa  
   
 ![](https://live.staticflickr.com/65535/52732162936_d1e32a51cf_z.jpg "Terracina, via San Rocco")   
 
@@ -528,9 +528,43 @@ Devo dire che questa signora di fronte, che conosco da vent'anni ma solo per ave
 terrazzo a fumare (perché è da vent'anni entrambi che evitiamo di incrociare li sguardi), mi dà
 una gran bella mano. In particolare mi aiuta molto la regolarità di come fa le sue belle stese di
 panni: i bianchi, i colorati, le cose piccole, gli abiti da lavoro (del figlio credo), gli stracci e via
-così. Cose semplici e ben fatte.
-Poi dopo aver steso si fuma una meritata sigaretta, il che mi fa benissimo anche a me.
+così. Cose semplici e ben fatte.  
+Poi dopo aver steso si fuma una meritata sigaretta, il che mi fa benissimo anche a me.  
 
+---  
+### 66. stock      
+  
+![](https://live.staticflickr.com/65535/52731640757_679df596c2_z.jpg "Terracina, parco pubblico")  
+
+Dice che c'è questo dell’ufficio loro che telefona sempre dalla tromba delle scale o dal cesso e urla. Parla di cose che vuole vendere o comprare: azioni, mobili, oro e altra roba così. Dice che ultimamente urla solo di quadri: lui li chiama "opere" e i pittori, che c’hanno cognomi qualsiasi da vicini di casa dell’Alberone, sono tutti "il maestro": il maestro qui, il maestro là. Dice che intanto così quello in un anno ha già triplicato il patrimonio suo.
+
+---  
+### 67. attenzioni        
+  
+![](https://live.staticflickr.com/65535/52731640622_a294f5a272_z.jpg "Terracina, molo")  
+
+In Metro c'è un signore calvo che legge concentratissimo un articolo su una rivista tipo para-farmaceutica che titola: "Quanto e se la soia può essere utile durante la menopausa". Deve essere un bravissima persona.
+
+---  
+### 68. armadi      
+  
+![](https://live.staticflickr.com/65535/52731636557_8d38eb00f4_z.jpg "Terracina, parco pubblico")  
+
+**TBD**  
+
+---  
+### 69. loro      
+  
+![](https://live.staticflickr.com/65535/52732647318_c17e523866_z.jpg "Rocca Priora, cancello")  
+
+**TBD**  
+
+---  
+### 70. therapy      
+  
+![](https://live.staticflickr.com/65535/52732647408_077e1ccff1_z.jpg "Frascati, convalescenza")  
+
+**TBD**  
 
 ---    
 [about me](https://about.me/cacioman)  
