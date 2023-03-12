@@ -262,7 +262,3 @@ San Lorenzo. Trattoria. Al tavolo accanto al nostro c’è un ragazzo che parla 
 
 ---    
 [about me](https://about.me/cacioman) 
-
-
----    
-[about me](https://about.me/cacioman)  
