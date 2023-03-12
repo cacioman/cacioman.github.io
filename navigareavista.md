@@ -289,6 +289,87 @@ Funzionava sempre.
 **TBD**  
 
 ---  
+### 35. campus    
+  
+![](https://live.staticflickr.com/65535/52732568680_8ebeddc6c6_z.jpg "Napoli, teatro San Carlo")   
+
+Roma, via della Sorbona, uno stradone che incrocia rotonde e altri stradoni tra agro romano e parcheggi di istituti universitari, troviamo due pecoroni che risalgono il marciapiedone lungo la rete di confine del pratone. Dall'altra parte c'è anche tutto il resto del gregge che non sanno come raggiungere. Non sono spaventati: solo ogni tanto alzano la testa e fanno come degli strani belati interlocutori ("bee bee") ma nessuno risponde.
+
+---  
+### 36. variazioni     
+  
+![](https://live.staticflickr.com/65535/52732411204_be88cdca55_z.jpg "Fiumicino, selfie")   
+
+Il mio barbiere, un classico barbiere di paese sui settanta, mentre mi fa lo shampoo di solito si fischiettava anche il tema di “Hair”. Le fa entrambe  con grande partecipazione ma il fischio tende sempre un po' a virare sul genere *barcarolo che va controcorrenteeee*.  
+
+---  
+### 37. leadership     
+  
+![](https://live.staticflickr.com/65535/52732410914_22ebc20c4d_z.jpg "Siracusa, tonni e spade")   
+
+C'hanno mandato a fare il solito corso di leadership. Sono cose che funzionano tipo ludoteca: degli animatori che una volta ti fanno fare la pizza con acqua e farina, un'altra giocare a rugby o a caccia al tesoro, un'altra ancora recitare in video e così via finchè non sono sicuri che capace di accettare qualsiasi cosa.  
+Questa volta ci hanno dato delle schede, tipo le carte del memory, con sopra le foto di indiscussi leader mondiali: si andava da Che Guevara a Madre Teresa ma c’era anche Topolino e Zio Paperone. Dovevamo sceglierne uno tra i tanti, dando però una motivazione sensata.   
+Al solito siamo stati molto diligenti e dopo una mezz’ora siamo arrivati ad un ballottaggio tra Alex Zanardi e il Mahatma Gandhi.   
+Ha vinto il Mahatma, ma di misura. 
+
+---  
+### 38. raggirato     
+  
+![](https://live.staticflickr.com/65535/52732569100_678b53a425_z.jpg "Toscana, Empoli")   
+
+Il tipo che mi vende i croccantini per Ciccio mi dice, molto convintamente, che il prodotto che propone lui come alternativa a quello che cerco io, e che lui non ha, è veramente ottimo, sicuramente migliore. Con sguardo d'intesa mi mette in evidenza la scritta "NO OGM PROOF" e pronuncia la frase "non so se ci siamo capiti". Il problema è che io poi gliel'ho anche comprato.  
+
+---  
+### 39. memorycard    
+  
+![](https://live.staticflickr.com/65535/52732411339_fe0a61d511_z.jpg "Frascati, villa Sciarra")   
+
+**TBD**  
+
+---  
+### 40. truppa    
+  
+![](https://live.staticflickr.com/65535/52731638762_3d00d494f9_z.jpg "Frascati, Tuscolo")   
+
+**TBD**  
+
+---  
+### 41. botta    
+  
+![](https://live.staticflickr.com/65535/52732643623_f871bc2463_z.jpg "Frascati, Tuscolo")   
+
+**TBD**  
+
+---  
+### 42. verde    
+  
+![](https://live.staticflickr.com/65535/52732162136_12373fe56b_z.jpg "Terracina, Monte Giove")   
+
+**TBD**  
+
+
+---  
+### 43. natura    
+  
+![](https://live.staticflickr.com/65535/52732158861_965a2bd22c_z.jpg "Sonnino, campagna")   
+
+**TBD**  
+
+---  
+### 44. eredità    
+  
+![](https://live.staticflickr.com/65535/52732158571_d1a10ed35b_z.jpg "Roma, via Chiovenda")   
+
+Al funerale del padre di un mio collega, tra gli interventi ascoltati per commemorare lo scomparso, mi ha colpito quello del nipote, figlio del mio collega, un ragazzo sui venticinque che sapevo aveva intrapreso un percorso di affermazione di genere. Raccontava di  quando era andato dal nonno a parlargliene e il nonno quasi non gli aveva replicato salvo poi, nelle settimane successive, fargli avere come regalo una sua cravatta elegante e dei suoi gemelli da polso. Erano proprio le cose che in quel momento il ragazzo stava indossando per ricordarlo. 
+
+---  
+### 45. cipolle    
+  
+![](https://live.staticflickr.com/65535/52732642858_652b4c41ff_z.jpg "Roma, confessionale")   
+
+Oggi a Rebibbia, dalle finestrelle verticali del corridoio passando ho visto Mario, il calabrese, che lavorava fuori, nell'orto. L'ho chiamato, è venuto correndo a salutarmi, era entusiasta di farmi vedere quello che fa. Mi ha fatto vedere le cipolle. Sembrava un altro. "La terra fa miracoli" penso. Poi mi sono girata, non mi ero accorta che si era fermato un agente a sentire. Nonso se è molto regolare parlare così ma l'agente mi si rivolgeva  molto sorridente, come se volesse dire: "hai visto che bella cosa, eh?".  
+
+---  
 ### xxx. potatoes  
 
 ![](https://live.staticflickr.com/65535/52732573080_6e61276565_z.jpg "Roma, Pigneto")  
