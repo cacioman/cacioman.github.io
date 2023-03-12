@@ -244,7 +244,49 @@ Policlinico di via Castro Pretorio, quando ci vado non si smentisce mai: sequenz
 
 TBD  
 
+---  
+### 29. play-rec  
+  
+![](https://live.staticflickr.com/65535/52732161596_144ed034ce_z.jpg "Ruvo, amici dello sposo e sposo")   
 
+Frascati, davanti al TOP. Su un'auto d'epoca bardata a festa con le nappe bianche da matrimonio, passano d'improvviso due giovani sposi, anche bellini, anche simpatici, tutti contenti, lui però c'ha come una brutta paresi al braccio che tiene pugno chiuso in avanti ad angolo retto: è per reggere con la destra uno di quei cosi, tipo Osmo Pocket, che si usano per fare i vlog.   
+Auguri e figli connessi.    
+
+---  
+### 30. fede    
+  
+![](https://live.staticflickr.com/65535/52732162306_248fe7ee1b_z.jpg "Frascati, stazione treni")   
+
+Per sposarsi in chiesa senza corso prematrimoniale, dice che c'era una suora (dal nome sudamericano, tipo *suor Dolores*) che vendeva i certificati di frequenza, falsi. Ti dava appuntamento a un bar di via della Conciliazione, seduta ad un tavolino lato Borgo. Stavano lei e una sua aiutante mezza handicappatona. Era lei che ti allungava il certificato uscendolo da una cassetina che teneva in braccio. La apriva a scatto: CLOCK. Preso il certificato, la suora con gesto brusco ti indicava di nuovo la cassettina perché ci buttassi dentro la busta coi soldi e l'handicappatona chiudeva subito (sempre col CLOCK). Suor Dolores non controllava neanche la busta ("sono onesta e mi fido degli altri") ma per tua sicurezza ti faceva vedere: la foto del prete che teneva il corso prematrimoniale (con nome, cognome e tutto), la foto dell'esterno della parrocchia (con nome, via e tutto) e pure la piantina della parrocchia così sapevi come raggiungere la aule se entravi dalla strada (ma questo serviva "solo in caso di controlli").   
+Funzionava sempre.  
+
+---  
+### 31. spoiler    
+  
+![](https://live.staticflickr.com/65535/52732643028_ca755e9d99_z.jpg "Roma, Elena Cotugno in Medea per Strada")  
+
+**TBD**  
+
+---  
+### 32. oncologica    
+  
+![](https://live.staticflickr.com/65535/52732644523_72a7ee565a_z.jpg "Roma, Azienda Opsedaliera San Giovanni Addolorata")  
+
+**TBD**  
+
+---  
+### 33. scaramanzie    
+  
+![](https://live.staticflickr.com/65535/52731639422_132e417840_z.jpg "Frascati, via Candido Galli")  
+
+**TBD**  
+
+---  
+### 34. prima    
+  
+![](https://live.staticflickr.com/65535/52732410864_024e7f08e9_z.jpg "Siracusa, teatro all'italiana")  
+
+**TBD**  
 
 ---  
 ### xxx. potatoes  
@@ -260,5 +302,6 @@ Ero ragazzino sei o otto anni, con mia sorella a casa di altri ragazzini coetane
 
 San Lorenzo. Trattoria. Al tavolo accanto al nostro c’è un ragazzo che parla ad alta voce. Dice che con la scuola di scrittura va alla grande: gli hanno dato solo ‘sto compito che sulle prime non sapeva come fare ma poi s’era messo sotto scrivendo delle sagre del paese della madre in Molise, un buco in culo alla luna così piccolo che se te dico il nome te lo scordi subito. Dice che ha fatto quattro pagine fitte-fitte, tutte totalmente inventate che manco Tolkien ce riusciva. Erano così buone che poi il professore ha pure chiamato a casa per parlare con la madre e chiedere di ‘sto paesino - non si ricordava più il nome - se c'erano altri documenti, fotografie ché come tradizioni sono particolarissime. Al telefono la madre era stata molto ossequiosa “certo, si figuri, non mancherò, gentilissimo, ricambio” ma poi come ha abbassato gli fa al figlio: “oh ma che cazzo gli hai raccontato a ‘sto coglione?!” 
 
+
 ---    
-[about me](https://about.me/cacioman) 
+[about me](https://about.me/cacioman)  
