@@ -268,11 +268,11 @@ Funzionava sempre.
 **TBD**  
 
 ---  
-### 32. oncologica    
+### 32. oncologia    
   
 ![](https://live.staticflickr.com/65535/52732644523_72a7ee565a_z.jpg "Roma, Azienda Opsedaliera San Giovanni Addolorata")  
 
-**TBD**  
+Esce un'infermiera sulla sessantina, una maschiona un po' cilindrica. "D'Amato 'ndo sta?" chiede. D'Amato è piuttosto sconocchiato e fa un cenno poco convinto. "Come here D'Amato!" dice lei tutta *auanagana* e lo porta via appoggiandoselo sulle sisone. D'Amato si consola abbastanza e noi continuiamo ancora così: co 'sto senso di precarietà e vulnerabilità nelle cose della vita che ci fa su e giù tipo peperonata d'agosto.  
 
 ---  
 ### 33. scaramanzie    
@@ -327,11 +327,16 @@ Il tipo che mi vende i croccantini per Ciccio mi dice, molto convintamente, che 
 **TBD**  
 
 ---  
-### 40. truppa    
+### 40. incursori    
   
 ![](https://live.staticflickr.com/65535/52731638762_3d00d494f9_z.jpg "Frascati, Tuscolo")   
 
-**TBD**  
+Su un sentiero tra Colle di Fuori e Rocca Priora, in un tratto abbastanza antropizzato, mi si para davanti un militare in mimetica e mi punta addosso il suo un fucile d'assalto. Mi blocco. Ciccio  rimane interdett. Quello per tranquillizzare urla "Luce rossa! Luce rossa!", ci metto un po' per capire che  solo uno di quelli che, seppur ormai adulti, giocano a spararsi per finta. C'è chi la domenica si traveste da reparto d'elite e chi si traveste da piccolo esploratore e io non sono neanche tanto piccolo come sploratore.
+Dcambiamo anche due parole. Intanto anche i suoi  compari  escono fuori dalmano mano fuori dal sottobosco dove s'erano mimetizzati a dieci metri da me. Non li avevo visti. Se capitasse una guerra veramente, grosso e fesso come sono, sarei il primo ad essere impallinato. 
+"Siete tutti innocui vero?" chiedo con una certa dose di ironia.
+"Affermativo" rispondono  prontamente.  
+Ecco appuno: uguali a quelli veri.
+
 
 ---  
 ### 41. botta    
@@ -370,18 +375,161 @@ Al funerale del padre di un mio collega, tra gli interventi ascoltati per commem
 Oggi a Rebibbia, dalle finestrelle verticali del corridoio passando ho visto Mario, il calabrese, che lavorava fuori, nell'orto. L'ho chiamato, è venuto correndo a salutarmi, era entusiasta di farmi vedere quello che fa. Mi ha fatto vedere le cipolle. Sembrava un altro. "La terra fa miracoli" penso. Poi mi sono girata, non mi ero accorta che si era fermato un agente a sentire. Nonso se è molto regolare parlare così ma l'agente mi si rivolgeva  molto sorridente, come se volesse dire: "hai visto che bella cosa, eh?".  
 
 ---  
-### xxx. potatoes  
+### 46. pizzini    
+  
+![](https://live.staticflickr.com/65535/52731636267_dea6cd9084_z.jpg "Roma, via Chiovenda")   
+
+Stiamo andando da Frascati a Grottaferrata, col pulmino Ducato della Caritas.
+Con gli utenti del dormitorio c'è l'appuntamento dopo la mensa dei frati e ora li portiamo, già cenati, nei locali di un altro istituto religioso, questo in disuso (una struttura gigantesca, vuota e irrimediabilmente fredda). Si tratta di venti-venticinque posti letto che teniamo a disposizione per l'emergenza freddo. A portarli tutti col pulmino ci vogliono due viaggi.  
+Guido piegato a destra: il Ducato tira tutto a sinistra. “Butta a sinistra” dico a Marian e a mezza bocca aggiungo “Almeno lui...”. Marian non sente, il motore copre la mia voce. Meglio così. Gli urlo: “Ricordiamoci di scrivere sul quaderno che c’è da rifare la convergenza al Ducato”. Mariam fa il sorrisetto da rumeno fatalista. Poi dopo sull'agenda di bordo ce la caviamo aggiungendo altri tre punti esclamativi alla scritta “RIFARE LA CONVERGENZA AL DUCATO”.  
+
+---  
+### 47. shalom      
+  
+![](https://live.staticflickr.com/65535/52732158661_43171e76c9_z.jpg "Roma, Angelo Mai, Se questo è Levi, copagnia Fanny&Alexander")   
+
+Ci richiama l'agente con il quale dieci minuti prima abbiamo appena concluso l'accordo informale per un affitto di sottoscala zona Piazza Bologna. Dice che è rammaricatissimo ma che purtroppo ha appena avuto un'altra offerta per quel monolocale: questi nuovi gli pagherebbero tutto il mese di gennaio, non solo come noi che faremmo dal metà gennaio, ma se paghiamo gennaio anche noi, lui non ha problemi a darcelo, sì lo sa che avevamo appena fatto un accordo, che sono quindici giorni in più da pagare, buona parte dei quali già trascorsi, sì lo sa ma sa che ci volete fare il padrone dell'appartamento è ebreo e lo sapete come sono fatti gli ebrei, non so se li conoscete...   
+Certo che li conosciamo: siamo ebrei anche noi.   
+Lunghi istanti di inutile imbarazzo, “a non sapevo…”, un saluto e un vaffa a anche a lei e famiglia.
+Nel frattempo per poco non ci ammazzano sulle strisce.  
+
+---  
+### 48. musica      
+  
+![](https://live.staticflickr.com/65535/52732642733_45c7d6c28e_z.jpg "Roma, Sapienza, Quartetto Ebène")   
+
+Fontecchio (AQ). In piazza intorno alla fontana ballano la quadriglia: la cicciona e la anoressica, il ragazzo soggettone, la famigliola perfetta francese, i due danzatori animatori, il tizio di Montemarano, due escursionisti alternativi con una figlia "capellona", due ragazzi che poi sicuro che scopano, bambini che razzolano, il papà con la figlia a cicioncollo e la bella moglie abruzzese carnagione scura e occhi vivi. La danza dura una vita. I suonatori sono instancabili ma poi improvvisamente finiscono.  
+
+---  
+### 49. youth      
+  
+![](https://live.staticflickr.com/65535/52732158231_f0929b13be_z.jpg "Roma, Foro Italico, Internazionali di tennis")   
+
+Ogni volta che questi giovani infemieri mi attaccano i fili dell'elettrocardiogramma, faccio la stessa battuta "non c'è bisogno di attaccare la corrente: confesso subito tutto".   
+Non la capiscono mai e spesso mi fanno un sorrisetto, forse di contenimento.  
+
+---  
+### 50. amarcord       
+  
+![](https://live.staticflickr.com/65535/52731636107_8ce9b26d7b_z.jpg "Terracina, spiaggia")   
+
+**TBD**   
+
+---  
+### 51. sturmtruppen        
+  
+![](https://live.staticflickr.com/65535/52732413654_8e3d3c8e05_z.jpg "Frascati, Tuscolo")   
+
+Davanti a noi, sul pendio del Tuscolo che dà sui laghi, c'è una famigliola romana in gita fuoriporta. Si tratta di: un uomo e una donna sui trentacinque (segaligni e mezzi storti, sicuramente fratello e sorella), i figli di questi (tutti tra i cinque-dieci anni, tranne uno che gattona appena) e i relativi due consorti (un'italiana e un palestrato alla Mastrolindo, forse moldavo o ucraino). Con loro c'è anche Teo un barboncino bianco eccitatissimo da tutto quello spazio aperto.
+Mastrolindo insiste per non fermarsi e proseguire fino alla collinetta della Croce. Gli altri tre adulti nicchiano. Lui allora prova a convincere i ragazzi. Il cognato, ormai sdraiato sull'erba, commenta: "Costanti', guarda che mo chiamo il telefono azzurro!.." ma la moglie del forzuto è più benevola: "Amo' vai, vai così smetti de rompe li cojoni e io me fumo 'na bella sigaretta".
+Mastrolido, inscalfibile, organizza subito un plotone con relativi gradi: "Tu sei il responsabile di Teo", "Tu sei il responsabile del bastone". Mentre si allontanano in fila indiana lo si sente dire: "Non fate i taliani: non buttate niente a terra". Ai ragazzini questo cimento militaresco piace e pure Teo approva abbaiando entusiasta.
+Noi intanto guardiamo il panorama (che da qui è bellissimo e arriva fino al mare) mentre il bimbo piccolo bruca in santa pace l'erba del prato.
+
+---  
+### 52. noi      
+  
+![](https://live.staticflickr.com/65535/52732162481_4e50603edc_z.jpg "Terracina, lungomare")   
+
+Dice che anche la ragazza egiziana che serve all'alimentari, Ferial, quella magretta caruccia e pure svelta, pure lei dice che c'ha ragione Salvini: "che 'sti neri hanno rotto", "che se ne devono anda' a casa loro", "porti chiusi", "me sbajo?" ti dice. "A Feria'" risponde una "ma non sei egiziana pure tu?! ma che mo c'hai la cittadinanza italiana?". "E no!" risponde mezza imbruttita e no che lei non ce l'ha la cittadinanza "ma che centra?!". Dice che lei sta qua da quando era ragazzina che era piccola piccola, che è venuta tanti anni fa, che l'Egitto manco sa più com'è fatto. Lei sta a di' per tutti 'sti neri che so' venuti adesso, dopo di lei, quelli stessero a casa loro.
+Ah, ecco!..
+
+---  
+### 53. attrezzi          
+  
+![](https://live.staticflickr.com/65535/52732642488_8cb3931d04_z.jpg "Frascati, Tuscolo")   
+
+**TBD**  
+
+---  
+### 54. minosse-indy            
+  
+![](https://live.staticflickr.com/65535/52732567870_0e1ace18b7_z.jpg "Roma, Foro Italico")   
+
+**TBD**  
+
+---  
+### 55. monopattini              
+  
+![](https://live.staticflickr.com/65535/52732642108_db0af2a61b_z.jpg "Roma, Foro Italico")   
+
+**TBD**  
+
+---  
+### 56. muccassassina               
+  
+![](https://live.staticflickr.com/65535/52732408464_066b512536_z.jpg "Terracina, backhome")   
+
+**TBD**  
+
+---  
+### 57. shoot               
+  
+![](https://live.staticflickr.com/65535/52732641718_1abb32ae4c_z.jpg "Terracina, backhome")   
+
+[url=https://flic.kr/p/2okNzcU][img][/img][/url][url=https://flic.kr/p/2okNzcU]#navigareavista #fotoblog #of[/url] by [url=https://www.flickr.com/photos/cacioman/]Claudio Gatti[/url], su Flickr
+
+**TBD**  
+
+---  
+### 58. friday               
+  
+![](https://live.staticflickr.com/65535/52732641793_e8af71dcfc_z.jpg "Terracina, backhome")   
+
+Novembre, venerdì pomeriggio. Ultima stanca riunione. Per tutto il tempo ci lanciamo in micro scazzi, mezze minacce, battute irritanti ma che poi non si capisce come fine alla tarallucci e vino. In questo nuovo clima 'volemose bene' ci si accomiata tutti più benevoli (ma sopratutto più liberati): c'è chi dice "buona serata", chi "buon week end" e poi c'è uno che per strafare augura "buon black friday".
+
+---  
+### 59. face2face               
+  
+![](https://live.staticflickr.com/65535/52732647363_d13470d7d5_z.jpg "Cortona, prove di ballo")   
+
+**TBD**  
+
+---  
+### 60. mater                 
+  
+![](https://live.staticflickr.com/65535/52732155861_0cf43b2b46_z.jpg "Terracina, processione dell'Assunta")   
+
+**TBD**  
+
+---  
+### 61. potatoes  
 
 ![](https://live.staticflickr.com/65535/52732573080_6e61276565_z.jpg "Roma, Pigneto")  
 
 Ero ragazzino sei o otto anni, con mia sorella a casa di altri ragazzini coetanei figli di amici dei miei, entrambi rosci, facevamo tutti una gran gazzarra tipo a rincorrerci pazzamente nel corridoio, è così che sono entrato di slancio nel bagno, in effetti la porta era chiusa ma non a chiave e io l’ho aperta di botto, dentro immediatamente a destra c’era la vasca e dentro la vasca la mamma dei miei amici, sdraiata supina, nuda, nudissima che subito ha provato a coprirsi veloce sopra e sotto con le mani, una donna tondetta, sulla trentina, mora, molto dolce ma sempre un po’ impacciata, e così lo era anche in quel momento di sorpresa, io sono rimasto come impietrito, del resto era la prima volta che vedevo una donna nuda, a meno di quando io e mia sporella dormivamo da mia nonna ma la vedevamo a mezzo busto con quei cosi appesi che noi chiamavamo “i mosci”, a pensarci mia nonna avrà avuto poco più della mia età di adesso, io da quel bagno sono subito scappato via, non ne abbiamo mai parlato, chissà se lei poi se lo ricordava, non so, poi lei è mancata anni dopo ma pur sempre parecchi secoli fa.
 
 ---  
-### xx. narrazioni  
+### 62. TTT      
+  
+![](https://live.staticflickr.com/65535/52732159766_09a01e8c83_z.jpg "Terracina, via Giacomo Leopardi")   
+
+**TBD**  
+
+---  
+### 63. sunday        
+  
+![](https://live.staticflickr.com/65535/52732163301_9739d6ff8e_z.jpg "Terracina, via Giacomo Leopardi")   
+
+**TBD**  
+
+---  
+### 64. narrazioni  
 
 ![](https://live.staticflickr.com/65535/52732157881_686afbea53_z.jpg "Lucera, estate")  
 
 San Lorenzo. Trattoria. Al tavolo accanto al nostro c’è un ragazzo che parla ad alta voce. Dice che con la scuola di scrittura va alla grande: gli hanno dato solo ‘sto compito che sulle prime non sapeva come fare ma poi s’era messo sotto scrivendo delle sagre del paese della madre in Molise, un buco in culo alla luna così piccolo che se te dico il nome te lo scordi subito. Dice che ha fatto quattro pagine fitte-fitte, tutte totalmente inventate che manco Tolkien ce riusciva. Erano così buone che poi il professore ha pure chiamato a casa per parlare con la madre e chiedere di ‘sto paesino - non si ricordava più il nome - se c'erano altri documenti, fotografie ché come tradizioni sono particolarissime. Al telefono la madre era stata molto ossequiosa “certo, si figuri, non mancherò, gentilissimo, ricambio” ma poi come ha abbassato gli fa al figlio: “oh ma che cazzo gli hai raccontato a ‘sto coglione?!” 
+
+---  
+### 65. stesa        
+  
+![](https://live.staticflickr.com/65535/52732162936_d1e32a51cf_z.jpg "Terracina, via San Rocco")   
+
+Devo dire che questa signora di fronte, che conosco da vent'anni ma solo per averla vista sul
+terrazzo a fumare (perché è da vent'anni entrambi che evitiamo di incrociare li sguardi), mi dà
+una gran bella mano. In particolare mi aiuta molto la regolarità di come fa le sue belle stese di
+panni: i bianchi, i colorati, le cose piccole, gli abiti da lavoro (del figlio credo), gli stracci e via
+così. Cose semplici e ben fatte.
+Poi dopo aver steso si fuma una meritata sigaretta, il che mi fa benissimo anche a me.
 
 
 ---    
