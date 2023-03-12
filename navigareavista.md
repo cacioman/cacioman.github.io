@@ -2,7 +2,7 @@
 
 [![](https://live.staticflickr.com/65535/52741455652_fe5d9c8ce1_z.jpg)](https://flic.kr/s/aHBqjAuLZN "flickr album")  
 
-Ho raccolto una [selezione di foto](https://flic.kr/s/aHBqjAuLZN) tra quello che ho fatto dalla pandemia a oggi aggiungendo due righe per raccontare il cambiamento, più o meno grande, che è avvenuto e che quelle immagini mi ricordano. Le immagini messe così in questa sequenza c'avrebbero pure una specie di logica intrinseca con cui si collegano l’una all’altra, ma molto evanescente e personale.  
+Ho raccolto una [selezione di foto](https://flic.kr/s/aHBqjAuLZN) tra quelle che ho fatto dalla pandemia a oggi aggiungendo due righe per raccontare il cambiamento, più o meno grande, che è avvenuto e che quelle immagini mi ricordano. Le immagini messe così in questa sequenza c'avrebbero pure una specie di logica intrinseca con cui si collegano l’una all’altra, ma molto evanescente e personale.  
 
 ---    
 ### 1. twins  
