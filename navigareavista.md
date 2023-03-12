@@ -9,8 +9,8 @@ Ho raccolto una [selezione di foto](https://flic.kr/s/aHBqjAuLZN) tra quello che
 
 ![](https://live.staticflickr.com/65535/52732160916_9b550afa0d_z.jpg "Frascati, FIAT QUBO")  
 
-Più vado avanti e invecchio, più guardandomi allo specchio mi sento di assomigliare a mia sorella. Come quegli animali tipo grossi cetacei, plantigradi vari o quelle strane forme sottomarine di cui a prima vista solo gli esperti distinguono i caratteri sessuali.    
-Quando poi glielo dico, per condividere, non mi pare prenderla benissimo.  
+Più vado avanti e invecchio, più guardandomi allo specchio mi sento di assomigliare a mia sorella. Come quegli animali tipo grossi cetacei, plantigradi vari o quelle strane forme sottomarine di cui solo gli esperti distinguono a prima vista i corrispondenti caratteri sessuali.    
+Quando poi glielo dico, a mia sorella per condividere, non mi pare prenderla benissimo.  
 
 ---  
 ### 2. capelli    
