@@ -2,8 +2,7 @@
 
 [![](https://live.staticflickr.com/65535/52741455652_fe5d9c8ce1_z.jpg)](https://flic.kr/s/aHBqjAuLZN "flickr album")  
 
-Per un [laboratorio di foto narrazione](https://roma.officinefotografiche.org/corsi/metamorfosi/) sul tema "Metamorfosi", ho raccolto una selezione di foto che ho fatto dalla pandemia a oggi e aggiunto due righe per raccontare il cambiamento, più o meno grande, che quelle immagini mi ricordano.    
-Le immagini messe così [nello loro sequenza](https://flic.kr/s/aHBqjAuLZN) c'avrebbero pure una specie di logica intrinseca, ma molto evanescente.   
+Ho raccolto una [selezione di foto](https://flic.kr/s/aHBqjAuLZN)  che ho fatto dalla pandemia a oggi e aggiunto due righe per raccontare il cambiamento, più o meno grande, che quelle immagini mi ricordano. Le immagini messe così in questa sequenza c'avrebbero pure una specie di logica intrinseca con cui si collegano l’una all’altra, ma molto evanescente e personale.  
 
 ---    
 ### 1. twins  
@@ -465,8 +464,6 @@ Ah, ecco!..
 ### 57. shoot               
   
 ![](https://live.staticflickr.com/65535/52732641718_1abb32ae4c_z.jpg "Terracina, backhome")   
-
-[url=https://flic.kr/p/2okNzcU][img][/img][/url][url=https://flic.kr/p/2okNzcU]#navigareavista #fotoblog #of[/url] by [url=https://www.flickr.com/photos/cacioman/]Claudio Gatti[/url], su Flickr
 
 **TBD**  
 
