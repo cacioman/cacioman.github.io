@@ -1,9 +1,5 @@
 
-### ultime uscite :
-- 26feb - ho ripreso ad alimentare [**guazzabuglione**](https://t.me/guazzabuglione) il mio canale Telegram di post accattati in rete
-- 24feb - [**Tuba Mirum**](ing-230224-0101.md): di un ricordo che ogni tanto mi scatta; della serie #ingiro      
-- 19feb - [**Frascati, arrivo treno** (con selfie)](https://youtube.com/playlist?list=PLGB9DoD4rkOvuwftOafkz62ESuNB3sWlh) della serie #VideoInsulsi
-- 15feb - ho letto ["**Storie vere**"](loq-230215-0101.md) di Sophie Calle: è molto breve ed è da comprare   
+### ultime uscite su [linktr.ee](https://linktr.ee/cacioman)
 
 ### ancora in linea :
 - [**leggere l'Orestea a Rebibbia**](https://docs.google.com/document/d/1gUJ1HJ9AseuFecQ_CTNzu6HjrihQdxtAUjQ7g-ZI2vE/edit?usp=share_link): cosa ti combinano i tragici greci in carcere (scritto per un laboratorio di reportage tenuto da Annalisa Camilli)
@@ -12,8 +8,7 @@
 
 ### archivi
 - [**video insulsi**](https://www.youtube.com/@ClaudioGatti44): veramente insulsi ma almeno anche molto molto corti  
-- [**fotoblog**](https://flickr.com/photos/cacioman/): la strisciata di foto mano mano che le faccio     
-- [**shared post**](https://t.me/s/guazzabuglione): guazzabuglione di post che trovo in rete e che ripubblico pari pari (poi dopo una mesata cancello tutto)    
+- [**fotoblog**](https://flickr.com/photos/cacioman/): la strisciata di foto mano mano che le faccio       
 
 ---    
 [about me](https://about.me/cacioman) 
