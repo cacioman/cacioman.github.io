@@ -42,9 +42,7 @@ Frascatani, Grotaferratesi e castellani tutti: "Intera Rete" è in vendita a Fra
 - [idee regalo](https://youtu.be/brnGlXThfag)     
 - ["ci si vede in giro"](https://youtu.be/fOOXviO-kMg)  
  
----!>   
-
-  
+-->   
 
 ---    
 [about me](https://about.me/cacioman)  
