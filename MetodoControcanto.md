@@ -11,7 +11,7 @@ Qui trovate il documento da leggere :
 - in formato [Google DOC](https://docs.google.com/document/d/1QjlGbO58h9rhIr9l7X8WWTYCTQ0CrEAEWS8Ep1nxfoQ/edit?usp=sharing)  
 - in formato [Web Pages](https://docs.google.com/document/d/e/2PACX-1vSyZlDuW2P9U75r0qg5rkLg99laBPE4ktJW7pDCbfDPm_cPkP0uV8OdeTEUxDhjHjoqju-9kKVUBd_J/pub)  
 
-Se siete interesati alle altre foto che non ho usato, [le trovate qui](https://www.flickr.com/gp/cacioman/fPVsp9).  
+Se siete interesati alle altre foto che non ho usato, [le trovate qui](https://photos.app.goo.gl/nGPjZpZS8aczHyD36).  
 
 ---    
 [about me](https://about.me/cacioman)  
