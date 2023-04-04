@@ -6,7 +6,6 @@
 
 ---  
 
-
 **cosa racconta "Intera Rete"**  
 Ministeriali di concetto, pensionati eroici, stranieri quasi integrati, turisti Indiana Jones, studenti in chat, cani con padrone al guinzaglio, marzialissimi vigilantes, autisti spallati, homeless organizzati, bipolari ciarlieri, badanti infagottate, operai impolverati, promoter su di giri, madri esaurite, professionisti azzimati e via così. 
 
@@ -24,14 +23,12 @@ Per fare un ordine mandatemi una mail su [cacioman@gmail.com](mailto::cacioman@g
 Frascatani, Grotaferratesi e castellani tutti: "Intera Rete" è in vendita a Frascati presso la [**libreria Cavour UBIK**](https://www.facebook.com/libreria.frascati.cavour) e a Grottaferrata presso [**Libreria Adeia Ubik**](https://www.facebook.com/Adeialibri). In ogni caso potete prenderne una copia come prestito bibliotecario a Frascati direttamente presso [**la Bibliteca Comunale Carlo Del Vescovo**](https://goo.gl/maps/H5r5x6QXrAq1rRXQA) o attraverso il sito del [**Sistema Bibliotecario dei Castelli Romani**](https://sbcr.comperio.it/).  
 
 ---  
-**dove leggerlo o scaricarlo (gratis)**  
+**per leggerlo**  
 - [webpages](https://docs.google.com/document/d/e/2PACX-1vQRwiANaom26EhtbYZtutYeL-2fAjymjrPLMVab8JFhXCJS-6tZhbRlzBT5uN64oruOdjbD5KI3Oofl/pub)  
 - [pdf](https://drive.google.com/file/d/1_DByHcB7XwEvOEKSn8o94STRQoVUqiLo/view?usp=sharing) 
+- [le video letture di Daniela Margherita](https://www.youtube.com/@allontanarsidallalineagialla)  
 
-**archivio foto e letture**  
-- [questo il canale YouTube](https://www.youtube.com/@allontanarsidallalineagialla) con le videoletture di Daniela Margherita 
-- su [instagram](https://www.instagram.com/InteraRete/) o su [flickr](https://flic.kr/s/aHBqjA2JW5) trovate quasi tutte le foto dell'archivio (diciamo gli ultimi 8-9 anni)    
-- [presentazioni e incontri](https://photos.app.goo.gl/P8FyyW4iFthruzz79) 
+<!---  
 
 **se ne parla qui**  
 - [ugo blog](https://ugofoto.blogspot.com/2022/01/piccole-storie-metropolitane.html)  (gen22)  
@@ -45,7 +42,8 @@ Frascatani, Grotaferratesi e castellani tutti: "Intera Rete" è in vendita a Fra
 - [idee regalo](https://youtu.be/brnGlXThfag)     
 - ["ci si vede in giro"](https://youtu.be/fOOXviO-kMg)  
  
-
+---!>   
+  
 ---    
 [about me](https://about.me/cacioman)  
 
