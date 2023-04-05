@@ -30,6 +30,7 @@ Frascatani, Grotaferratesi e castellani tutti: "Intera Rete" è in vendita a Fra
 **altro**  
 - [le video letture di Daniela Margherita](https://www.youtube.com/@allontanarsidallalineagialla)  
 - [incontri e presentazioni](https://photos.app.goo.gl/P8FyyW4iFthruzz79)  
+- [tutte le foto]()  
 
 **se ne parla qui**  
 - [ugo blog](https://ugofoto.blogspot.com/2022/01/piccole-storie-metropolitane.html)  (gen22)  
