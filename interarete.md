@@ -26,9 +26,10 @@ Frascatani, Grotaferratesi e castellani tutti: "Intera Rete" è in vendita a Fra
 **per leggerlo**  
 - [webpages](https://docs.google.com/document/d/e/2PACX-1vQRwiANaom26EhtbYZtutYeL-2fAjymjrPLMVab8JFhXCJS-6tZhbRlzBT5uN64oruOdjbD5KI3Oofl/pub)  
 - [pdf](https://drive.google.com/file/d/1_DByHcB7XwEvOEKSn8o94STRQoVUqiLo/view?usp=sharing) 
-- [le video letture di Daniela Margherita](https://www.youtube.com/@allontanarsidallalineagialla)  
 
-<!---  
+**altro**  
+- [le video letture di Daniela Margherita](https://www.youtube.com/@allontanarsidallalineagialla)  
+- [incontri e presentazioni](https://photos.app.goo.gl/P8FyyW4iFthruzz79)  
 
 **se ne parla qui**  
 - [ugo blog](https://ugofoto.blogspot.com/2022/01/piccole-storie-metropolitane.html)  (gen22)  
@@ -42,8 +43,6 @@ Frascatani, Grotaferratesi e castellani tutti: "Intera Rete" è in vendita a Fra
 - [idee regalo](https://youtu.be/brnGlXThfag)     
 - ["ci si vede in giro"](https://youtu.be/fOOXviO-kMg)  
  
--->   
-
 ---    
 [about me](https://about.me/cacioman)  
 
