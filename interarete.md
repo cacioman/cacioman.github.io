@@ -13,12 +13,14 @@ Le foto e le storie di "Intera Rete" raccontano quelle situazioni per come le ho
 - [scaricarlo in formato pdf](https://drive.google.com/file/d/1_DByHcB7XwEvOEKSn8o94STRQoVUqiLo/view?usp=sharing)  
 - [prenderlo in prestito](https://sbcr.comperio.it/) a Frascati presso la [Bibliteca Carlo Del Vescovo](https://goo.gl/maps/H5r5x6QXrAq1rRXQA)  
 
-
-**altro**  
-- [le video letture di Daniela Margherita](https://www.youtube.com/@allontanarsidallalineagialla)  
-
-
 **se ne parla qui**  
+- [le video letture di Daniela Margherita](https://www.youtube.com/@allontanarsidallalineagialla)  
+- [new old camera](https://youtu.be/liLdrN-OhoY) 
+
+
+<!--- 
+
+- [le video letture di Daniela Margherita](https://www.youtube.com/@allontanarsidallalineagialla)  
 - [ugo blog](https://ugofoto.blogspot.com/2022/01/piccole-storie-metropolitane.html)  (gen22)  
 - [ci si vede in giro](https://www.cisivedeingiro.com/giri-di-parole/intera-rete-cronache-metropolitane/) (ott21)  
 - [noc sensei](https://www.nocsensei.com/lente/talenti/admin4914/quattro-splendidi-libri/) (feb21)  
@@ -27,9 +29,9 @@ Le foto e le storie di "Intera Rete" raccontano quelle situazioni per come le ho
 
 **book trailers**  
 - [lettori accaniti](https://youtu.be/mYt2Ns11YoA) 
-  
 - ["ci si vede in giro"](https://youtu.be/fOOXviO-kMg)  
 
+--->
   
 ---    
 [about me](https://about.me/cacioman)  
