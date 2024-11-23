@@ -1,4 +1,4 @@
-# Intera Rete       
+ # Intera Rete       
 
 [**BOOK TRAILER**](https://youtu.be/brnGlXThfag) 
 
@@ -8,10 +8,10 @@ L'incasinatissima rete dei mezzi pubblici romani per me è stata sopratutto un g
 
 Le foto e le storie di "Intera Rete" raccontano quelle situazioni per come le ho vissute: i fraintendimenti, gli idilli e gli scazzi, i tipi che corrono disperati, quelli flemmatici che spiegano cose tediosissime e gli altri ancora che nel dubbio telefonano sempre a mamma.   
  
-**come fare a leggerlo**  
-- direttamente [sul web](https://docs.google.com/document/d/e/2PACX-1vQRwiANaom26EhtbYZtutYeL-2fAjymjrPLMVab8JFhXCJS-6tZhbRlzBT5uN64oruOdjbD5KI3Oofl/pub)  
-- scaricandolo in [formato pdf](https://drive.google.com/file/d/1_DByHcB7XwEvOEKSn8o94STRQoVUqiLo/view?usp=sharing)  
-- prendendolo in [prestito](https://sbcr.comperio.it/) a Frascati presso la [Bibliteca Carlo Del Vescovo](https://goo.gl/maps/H5r5x6QXrAq1rRXQA)  
+**per leggerlo potete**  
+- [andare sul web](https://docs.google.com/document/d/e/2PACX-1vQRwiANaom26EhtbYZtutYeL-2fAjymjrPLMVab8JFhXCJS-6tZhbRlzBT5uN64oruOdjbD5KI3Oofl/pub)  
+- [scaricarlo in formato pdf](https://drive.google.com/file/d/1_DByHcB7XwEvOEKSn8o94STRQoVUqiLo/view?usp=sharing)  
+- [prenderlo in prestito](https://sbcr.comperio.it/) a Frascati presso la [Bibliteca Carlo Del Vescovo](https://goo.gl/maps/H5r5x6QXrAq1rRXQA)  
 
 
 **altro**  
