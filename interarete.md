@@ -1,12 +1,15 @@
 ## Intera Rete (cronache metropolitane)    
-[**BOOK TRAILER**](https://youtu.be/brnGlXThfag) 
+
+![/interarete 20211027_132736.jpg]()  
 
 Ministeriali di concetto, pensionati eroici, stranieri quasi integrati, turisti Indiana Jones, studenti in chat, cani con padrone al guinzaglio, marzialissimi vigilantes, autisti spallati, homeless organizzati, bipolari ciarlieri, badanti infagottate, operai impolverati, promoter su di giri, madri esaurite, professionisti azzimati e via così. 
 
 L'incasinatissima rete dei mezzi pubblici romani per me è stata sopratutto un gran via vai di facce che, fino al COVID, si ammassavano tutte insieme, tutti i giorni, con mansueta regolarità.  
 
 Le foto e le storie di "Intera Rete" raccontano quelle situazioni per come le ho vissute: i fraintendimenti, gli idilli e gli scazzi, i tipi che corrono disperati, quelli flemmatici che spiegano cose tediosissime e gli altri ancora che nel dubbio telefonano sempre a mamma.   
- 
+
+ [**Ufficial BOOK TRAILER**](https://youtu.be/brnGlXThfag) 
+
 **per leggerlo potete**  
 - [andare sul web](https://docs.google.com/document/d/e/2PACX-1vQRwiANaom26EhtbYZtutYeL-2fAjymjrPLMVab8JFhXCJS-6tZhbRlzBT5uN64oruOdjbD5KI3Oofl/pub)  
 - [scaricarlo in formato pdf](https://drive.google.com/file/d/1_DByHcB7XwEvOEKSn8o94STRQoVUqiLo/view?usp=sharing)  
