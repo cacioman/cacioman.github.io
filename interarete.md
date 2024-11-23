@@ -15,7 +15,7 @@ Le foto e le storie di "Intera Rete" raccontano quelle situazioni per come le ho
 - [prenderlo in prestito](https://sbcr.comperio.it/) a Frascati presso la [Bibliteca Carlo Del Vescovo](https://goo.gl/maps/H5r5x6QXrAq1rRXQA)  
 
 **se ne parla qui**  
-- [**Ufficial BOOK TRAILER**](https://youtu.be/brnGlXThfag) 
+- [ufficial **book trailer**](https://youtu.be/brnGlXThfag) 
 - [le video letture di Daniela Margherita](https://www.youtube.com/@allontanarsidallalineagialla)  
 - [una recensione del grande **Ryuichi Watanabe** di New Old Camera](https://youtu.be/liLdrN-OhoY) 
 
