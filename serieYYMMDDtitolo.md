@@ -1,8 +1,9 @@
-# Test
-### della serie "in giro" - mar/23
+# Titolo Titolo
+### della serie "SERIE" - mar/23
 
+![](interarete20211027_132736.jpg "didascaia")
+bla bla bla bla 
 
-bla bla bla bla 222  
 
 ---  
 [about me](https://about.me/cacioman) 
