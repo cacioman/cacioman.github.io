@@ -17,6 +17,7 @@ Le foto e le storie di "Intera Rete" raccontano quelle situazioni per come le ho
 **altro**  
 - [le video letture di Daniela Margherita](https://www.youtube.com/@allontanarsidallalineagialla)  
 
+
 **se ne parla qui**  
 - [ugo blog](https://ugofoto.blogspot.com/2022/01/piccole-storie-metropolitane.html)  (gen22)  
 - [ci si vede in giro](https://www.cisivedeingiro.com/giri-di-parole/intera-rete-cronache-metropolitane/) (ott21)  
@@ -28,7 +29,8 @@ Le foto e le storie di "Intera Rete" raccontano quelle situazioni per come le ho
 - [lettori accaniti](https://youtu.be/mYt2Ns11YoA) 
   
 - ["ci si vede in giro"](https://youtu.be/fOOXviO-kMg)  
- 
+
+  
 ---    
 [about me](https://about.me/cacioman)  
 
