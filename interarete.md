@@ -1,6 +1,6 @@
 ## Intera Rete (cronache metropolitane)    
 
-![](interarete_20211027_132736.jpg "il libro") 
+[![](interarete20211027_132736.jpg "il libro")](https://youtu.be/brnGlXThfag) 
 
 Ministeriali di concetto, pensionati eroici, stranieri quasi integrati, turisti Indiana Jones, studenti in chat, cani con padrone al guinzaglio, marzialissimi vigilantes, autisti spallati, homeless organizzati, bipolari ciarlieri, badanti infagottate, operai impolverati, promoter su di giri, madri esaurite, professionisti azzimati e via così. 
 
@@ -8,7 +8,6 @@ L'incasinatissima rete dei mezzi pubblici romani per me è stata sopratutto un g
 
 Le foto e le storie di "Intera Rete" raccontano quelle situazioni per come le ho vissute: i fraintendimenti, gli idilli e gli scazzi, i tipi che corrono disperati, quelli flemmatici che spiegano cose tediosissime e gli altri ancora che nel dubbio telefonano sempre a mamma.   
 
- [**Ufficial BOOK TRAILER**](https://youtu.be/brnGlXThfag) 
 
 **per leggerlo potete**  
 - [andare sul web](https://docs.google.com/document/d/e/2PACX-1vQRwiANaom26EhtbYZtutYeL-2fAjymjrPLMVab8JFhXCJS-6tZhbRlzBT5uN64oruOdjbD5KI3Oofl/pub)  
@@ -16,6 +15,7 @@ Le foto e le storie di "Intera Rete" raccontano quelle situazioni per come le ho
 - [prenderlo in prestito](https://sbcr.comperio.it/) a Frascati presso la [Bibliteca Carlo Del Vescovo](https://goo.gl/maps/H5r5x6QXrAq1rRXQA)  
 
 **se ne parla qui**  
+- [**Ufficial BOOK TRAILER**](https://youtu.be/brnGlXThfag) 
 - [le video letture di Daniela Margherita](https://www.youtube.com/@allontanarsidallalineagialla)  
 - [una recensione del grande **Ryuichi Watanabe** di New Old Camera](https://youtu.be/liLdrN-OhoY) 
 
