@@ -1,5 +1,4 @@
- # Intera Rete       
-
+## Intera Rete (cronache metropolitane)    
 [**BOOK TRAILER**](https://youtu.be/brnGlXThfag) 
 
 Ministeriali di concetto, pensionati eroici, stranieri quasi integrati, turisti Indiana Jones, studenti in chat, cani con padrone al guinzaglio, marzialissimi vigilantes, autisti spallati, homeless organizzati, bipolari ciarlieri, badanti infagottate, operai impolverati, promoter su di giri, madri esaurite, professionisti azzimati e via così. 
@@ -15,7 +14,7 @@ Le foto e le storie di "Intera Rete" raccontano quelle situazioni per come le ho
 
 **se ne parla qui**  
 - [le video letture di Daniela Margherita](https://www.youtube.com/@allontanarsidallalineagialla)  
-- [new old camera](https://youtu.be/liLdrN-OhoY) 
+- [una recensione del grande **Ryuichi Watanabe** di New Old Camera](https://youtu.be/liLdrN-OhoY) 
 
 
 <!--- 
