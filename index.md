@@ -1,6 +1,6 @@
-# note a margine
+# note a margine  
 
-- [item 1](interarete.md) : dove dico bla bla bla 
+segui gli aggiornamenti su:  [Mastodon](https://mastodon.uno/@cacioman) - [Telegram](https://telegram/s/cacioman) - [SubStack](https://cacioman.substack.com/) 
 
 ---  
 [about.me/cacioman](https://about.me/cacioman) 
