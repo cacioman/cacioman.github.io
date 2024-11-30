@@ -10,6 +10,5 @@ Esito a suonare. Quella continua.
 A questo punto suono. Mi aprono subito. Occhi curvi, un filo di imbarazzo, mi ritira le pratiche, sempre gentilissima e ci salutiamo.  
 Come esco e la porta si chiude che alle mie spalle già la sento: “Nonno è un mongoloide, un mongoloide capito!”  
 
-
 ---  
 [about me](https://about.me/cacioman) 
