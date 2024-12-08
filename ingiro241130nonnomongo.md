@@ -7,7 +7,7 @@ Per delle pratiche sono andato ad un ufficietto distaccato che dà sull’estern
 Più accorata che arrabbiata: “Amore mio se mamma te dice che nonno è un mongoloide è perchè nonno ha fatto del male a nonna, e pure a mamma, e perchè nonno è un mongoloide!”  
 Esito a suonare ma intanto quella continua: “Mamma non è cattiva: è nonno che è un mongolide!”  
 A questo punto suono. Mi apre subito. Occhi curvi, con un filo di imbarazzo mi ritira le pratiche, sempre gentilissima, e ci salutiamo.  
-Come esco e la porta si chiude, alle mie spalle già la sento: “Nonno è un mongoloide, un mongoloide capito!”   
+Come esco e la porta si chiude, alle mie spalle già la sento: “Nonno è un mongoloide, un mongoloide capit?!”   
 
 ---  
 [about me](https://about.me/cacioman) 
