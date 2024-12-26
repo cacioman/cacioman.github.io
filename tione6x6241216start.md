@@ -3,7 +3,7 @@
 ### della serie "Tione 6x6" - dic/24
 
 Tione, sabato mattina, metà dicembre. All’inizio tempo abbastanza grigio sotto una nuvola stagnante sul paese, poi mano mano schiarisce.  
-Vado in giro per il paese con le macchine fotografiche analogiche, un po’ posa maestro del bianco nero ma con le idee abbastanza poco chiare su cosa fare. Ho la stessa focale leggermente grandangolo sia sul formato quadrato della Hasselblad che su quello a rettangolo della Nikon FM. Si rivela perfetto. 
+Vado in giro con le macchinette analogiche, un po’ posa maestro del bianco nero ma con le idee abbastanza poco chiare su cosa fare. Ho la stessa focale leggermente grandangolo sia sul formato quadrato della Hasselblad che su quello a rettangolo della Nikon FM. Si rivela perfetto. 
 
 Per primo incontro Marcello che traffica con una carriola e dei ciocchettoni di legno.  
 “Ti posso fare una foto’?” chiedo “Contento tu…” praticamente mi risponde e si mette in posa. Direi che è la foto migliore.  
