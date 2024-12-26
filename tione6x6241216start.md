@@ -7,10 +7,10 @@ Vado in giro con le macchinette analogiche, un po’ posa maestro del bianco ner
 
 Per primo incontro Marcello che traffica con una carriola e dei ciocchettoni di legno.  
 “Ti posso fare una foto’?” chiedo “Contento tu…” praticamente mi risponde e si mette in posa. Direi che è la foto migliore.  
-Poi tutti gli altri. Anche loro molto disponibili se non divertiti. Mai sucsesso!  
-A tutti dico che “ se vengono bene, la stampo e te la riporto” e ora devo ripassare. 
+Poi così tutti gli altri che ho incontrato. Anche loro molto disponibili se non divertiti. Mai sucsesso!  
+A tutti dico che “ se vengono bene, la stampo e te la riporto” : devo ripassare. 
 
-A questo punto provo a continuare così anche col resto del paese. Da qui all'estate, forse anche oltre. Vediamo poi come e se unire tutto in un racconto o un filo rosso. Da cosa nasce cosa e che gli spunti me li darà la situazione.
+E ora continuo così anche col resto del paese. Se funziona andrei avanti da qui all'estate, forse anche oltre. Vediamo poi come e se unire tutto con un filo rosso. Da cosa nasce cosa e gli spunti me li darà la situazione.
 
 ![](https://cacioman.github.io/tione6x6241226pic02.jpg "Marcello Crisi")  
 ![](https://cacioman.github.io/tione6x6241226pic03.jpg "Gisellla (?)")  
