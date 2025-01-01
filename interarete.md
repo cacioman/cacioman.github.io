@@ -1,6 +1,6 @@
 ## Intera Rete (cronache metropolitane)    
 
-[![](interarete20211027_132736.jpg "il libro")](https://youtu.be/brnGlXThfag) 
+![](https://i.postimg.cc/Xvtc0VZz/Screenshot-2025-01-01-230817.png "Ciccio")  
 
 Ministeriali di concetto, pensionati eroici, stranieri quasi integrati, turisti Indiana Jones, studenti in chat, cani con padrone al guinzaglio, marzialissimi vigilantes, autisti spallati, homeless organizzati, bipolari ciarlieri, badanti infagottate, operai impolverati, promoter su di giri, madri esaurite, professionisti azzimati e via così. 
 
