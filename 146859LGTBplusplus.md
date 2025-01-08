@@ -1,6 +1,9 @@
 # LGBTQ Plus Plus  
 ### della serie "in piazza" - giu 2023
 
+
+https://i.postimg.cc/SxR2N06V/Screenshot-2025-01-08-144152.png
+
 Roma, verso piazza Esedra, primo pomeriggio, concentramento del Roma Pride. Sole che picchia. Gran odore di ascellame.  
 
 Dove mi giro vedo mucchi e mucchi di ragazz* sempre più ammassat\*, tutt\* molto content\*. Ce n’è di ogni: magr\*, alt\*, larg\*, bass\*, alt\*, bell\*, brutt\*, aggressiv\*, remissiv\*, spegiudicat\*, timid\*, palestrat\*, panzon\*, selleron\*, nan\*, qualche vecchia carampana, molti tromboni e dei boomer tipo me. Passa Alessandro Capriccioli da solo, poi Rocco Casalino che fende la folla a grandi passi, lui e la sua immacolata camicia.  
