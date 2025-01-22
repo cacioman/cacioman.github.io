@@ -1,7 +1,7 @@
 # LGBTQ Plus Plus  
 ### della serie "in piazza" - giu 2023
 
-![](https://i.postimg.cc/SxR2N06V/Screenshot-2025-01-08-144152.png "Roma - giu 23")  
+![](https://i.postimg.cc/RhpDhR2W/Screenshot-2025-01-22-163619.png "Roma - giu 23")  
 
 Roma, verso piazza Esedra, primo pomeriggio, concentramento del Roma Pride. Sole che picchia. Gran odore di ascellame.  
 
