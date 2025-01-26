@@ -1,5 +1,5 @@
-# contro il decreto sicurezza
-### della serie "in piazza" - wk#50 2024 
+# in fila per 6 col resto di due
+### della serie "in piazza" - gen 2025 
  
 ![](https://i.postimg.cc/QCpbhfF7/Screenshot-2024-12-31-123023.png "Insorgiamo GKN")  
 
