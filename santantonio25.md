@@ -12,7 +12,7 @@ Prima del fuoco di Tione passiamo a vedere quelli di Fontecchio e Santa Maria ma
 Ieri era il fuoco quello da addomesticare e oggi è l'intelligenza artificiale? Bisogna saper mettere insieme il computer ed il pero selvatico, come dice bene Franco Arminio, sì ma come si fa?   
 Poi si mangia e si beve e si guardano le braci estinguersi. Lo faranno solo il giorno dopo.   
 
-[**qui le foto che ho fatto quest'anno**](https://photos.app.goo.gl/Pue7q8XrCrM8EpR56) , la sequenza di inizio pagina l'ho fatto l'altr'anno da casa usandola Webcam messa in piazza dal comune.     
+[**qui le foto che ho fatto quest'anno**](https://photos.app.goo.gl/Pue7q8XrCrM8EpR56) , la sequenza di inizio pagina l'ho fatta l'altr'anno da casa usando la Webcam messa in piazza dal comune.     
 
 ---  
 [about me](https://about.me/cacioman) 
