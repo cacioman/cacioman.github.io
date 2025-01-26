@@ -10,9 +10,9 @@ Sono performance semplici ed ancestrali. Nei giorni più freddi dell'anno, la fe
 
 Prima del fuoco di Tione passiamo a vedere quelli di Fontecchio e Santa Maria. Arriviamo in piazza a Tione subito dopo la benedizione, il fuoco è stato appena acceso ma già alto. Intorno, mezzo ipnotizzati da fiamme e crepitio, c'è chi continua ad alimentarlo con altra legna e fascine, in una dinamica di fascinazione e spavalderia che mi ricorda insieme "la notte sul monte calvo" e "l'apprendista stregone" di Fantasia. 
 Ieri era il fuoco quello da addomesticare e oggi è l'intelligenza artificiale? Bisogna saper mettere insieme il computer ed il pero selvatico, come dice bene Franco Arminio, sì ma come si fa?   
-Poi si mangia e si beve.  
+Poi si mangia e si beve e si guardano le braci estinguersi. Lo faranno il giorno dopo.   
 
-[**qui le foto che ho fatto quest'anno**](https://photos.app.goo.gl/Pue7q8XrCrM8EpR56) , la sequenza di inizio pagina l'ho fatto l'altr'anno con la Webcam che stava in piazza. Faceva un gran freddo e stavano tutti al chiuso nella ex sala consiliare.   
+[**qui le foto che ho fatto quest'anno**](https://photos.app.goo.gl/Pue7q8XrCrM8EpR56) , la sequenza di inizio pagina l'ho fatto l'altr'anno da casa usandola Webcam messa in piazza dal comune.     
 
 ---  
 [about me](https://about.me/cacioman) 
