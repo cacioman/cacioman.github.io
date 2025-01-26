@@ -1,4 +1,4 @@
-# start
+# kick off
 ### della serie "Tione 6x6" - wk#50 2024 
 
 ![](https://i.postimg.cc/pVCQG6y0/Screenshot-2025-01-13-150726.png "Tione 6x6")  
@@ -8,12 +8,11 @@ Quando esco di casa il tempo è abbastanza grigio, ancora sotto una nuvola stagn
 
 Vado in giro con le macchine fotografiche analogiche, tipo un po’ in posa da maestro del bianco nero (ma con le idee abbastanza poco chiare su cosa fare).
 Ho la stessa focale leggermente grandangolo sia sul formato quadrato della Hasselblad che su quello a rettangolo della Nikon. Si rivela perfetto.  
-
 Per primo incontro Marcello che traffica con una carriola e dei ciocchettoni di legno.  
 “Ti posso fare una foto’?” chiedo, “Contento tu…” risponde e si mette in posa. Direi che è la foto migliore.  
 
 Poi così tutti gli altri che ho incontrato. Anche loro molto disponibili se non divertiti. Mai successo!
-A tutti dico che “ se vengono bene, la stampo e te la riporto” e ora devo ripassare.
+A tutti dico che “se vengono bene, la stampo e te la riporto” e ora devo ripassare.
 
 Se va sempre così, provo a fare anche il resto del paese. Da qui all'estate, senza troppi limiti di tempo, magari anche oltre. Vediamo come butta.  
 
