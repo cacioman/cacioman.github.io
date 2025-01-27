@@ -10,7 +10,7 @@ Sono manifestazioni partecipate, semplici e dal sapore ancestrale. Nei giorni pi
 
 Prima del fuoco di Tione passiamo a vedere quelli di Fontecchio e Santa Maria ma così arriviamo in piazza a Tione subito dopo la benedizione. Il fuoco è stato appena acceso ma è già alto. Anche se più piccolo, mi sembra più partecipato. Ci mettiamo intorno, mezzo ipnotizzati da fiamme e crepitio. Intanto c'è chi continua ad alimentarlo con legna e rami, in una dinamica di fascinazione e spavalderia che mi ricorda insieme "la notte sul monte calvo" e "l'apprendista stregone" di Fantasia.  
 Ieri era il fuoco quello da addomesticare e oggi è l'intelligenza artificiale? Bisogna saper mettere insieme il computer ed il pero selvatico, come dice bene Franco Arminio, sì ma come si fa?   
-Poi si mangia e si beve e si guardano le braci estinguersi. Lo faranno solo il giorno dopo.   
+Poi si mangia, si beve e si guardano le braci estinguersi. Lo faranno veramente solo il giorno dopo.   
   
   
   
