@@ -14,7 +14,7 @@ Poi si mangia e si beve e si guardano le braci estinguersi. Lo faranno solo il g
   
   
   
-[**qui le foto che ho fatto quest'anno**](https://photos.app.goo.gl/Pue7q8XrCrM8EpR56) , la sequenza di inizio pagina l'ho fatta l'altr'anno da casa usando la Webcam messa in piazza dal comune.     
+[**qui le foto che ho fatto quest'anno**](https://photos.app.goo.gl/Pue7q8XrCrM8EpR56) , la sequenza di inizio pagina l'ho fatta l'altr'anno da casa usando la Webcam della piazza.     
 
 ---  
 [about me](https://about.me/cacioman) 
