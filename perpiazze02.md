@@ -3,7 +3,7 @@
  
 ![](https://i.postimg.cc/ryjqhKmZ/Screenshot-2025-01-26-183631.png "Latina - controil capolarato")  
 
-Latina, manifestazione per la morte Satnam Singh. Ci vado col cane: se lo lasciassi a casa starebbe da solo e abbaierebbe tutto il pomeriggio. Me lo attacco il guinzaglio al fondo dello zaino in modo da avere le mani libere per fotografare. Funziona bene: giro liberamente in mezzo alle persone e lui rimane tranquillo senza abbaiare o tirare. Unico problema che mi sento un po' una macchietta ma faccio finta di non esserlo.  
+Latina, manifestazione per la morte Satnam Singh. Ci vado col cane: se lo lasciassi a casa starebbe da solo e abbaierebbe tutto il pomeriggio. Me lo attacco il guinzaglio al fondo dello zaino in modo da avere le mani libere per fotografare. Funziona bene: giro liberamente in mezzo alle persone e lui rimane tranquillo senza abbaiare o tirare. Unico problema è che mi sento un po' una macchietta. Faccio finta di non esserlo.  
 
 Le condizioni delle luce sul campo non sono neanche facilissime: è ancora forte, ci sono poche zone in ombra, i volti dei manifestanti o i loro cartelli sono quasi sempre in controluce. Faccio quello che riesco ma dopo a casa confrontando le miei foto con quelle dei veri professionisti presenti, capisco  la differenza tra chi sa usare il flash (loro) e chi neanche ce l'ha o saprebbe esattamente cosa farci (io).   
 
