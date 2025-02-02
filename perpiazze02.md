@@ -1,7 +1,7 @@
 # Contro il capolarato
 ### della serie "in piazza" - giu 24 
  
-![](https://i.postimg.cc/ryjqhKmZ/Screenshot-2025-01-26-183631.png "Latina - controil capolarato")  
+![](https://i.postimg.cc/ryjqhKmZ/Screenshot-2025-01-26-183631.png "Latina, piazza Prefettura - signore")  
 
 Latina, manifestazione per la morte Satnam Singh. Ci vado col cane: se lo lasciassi a casa starebbe da solo e abbaierebbe tutto il pomeriggio. Me lo attacco il guinzaglio al fondo dello zaino in modo da avere le mani libere per fotografare. Funziona bene: giro liberamente in mezzo alle persone e lui rimane tranquillo senza abbaiare o tirare. Unico problema è che mi sento un po' una macchietta. Faccio finta di non esserlo.  
 
