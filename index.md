@@ -1,6 +1,11 @@
 
-- [si riparte (gen25)](https://cacioman.substack.com/p/si-riparte)
-- [Cupido (feb25)](https://cacioman.substack.com/p/cupido)
+
+- [pastorale](https://cacioman.github.io/pastorale.html) gen25
+- [Sant'Antonio 2025](https://cacioman.github.io/santantonio25.html) gen25
+- [kick off ](https://cacioman.github.io/kickofftione6x6.html) dic24 
+- [contro il caporalato](https://cacioman.github.io/perpiazze02.html) giu24  
+- [non una di meno](https://cacioman.github.io/perpiazze01.html) nov23
+- [LGBTQ Pluas Plus](https://cacioman.github.io/LGTBplusplus.html) giu23   
 
 ---  
 [about.me/cacioman](https://about.me/cacioman) 
