@@ -5,7 +5,7 @@
 - [kick off ](https://cacioman.github.io/kickofftione6x6.html) dic24 
 - [contro il caporalato](https://cacioman.github.io/perpiazze02.html) giu24  
 - [non una di meno](https://cacioman.github.io/perpiazze01.html) nov23
-- [LGBTQ Pluas Plus](https://cacioman.github.io/LGTBplusplus.html) giu23   
+- [LGBTQ Plus Plus](https://cacioman.github.io/LGTBplusplus.html) giu23   
 
 ---  
 [about.me/cacioman](https://about.me/cacioman) 
