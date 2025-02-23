@@ -11,7 +11,7 @@ Le foto e le storie di "Intera Rete" raccontano quelle situazioni per come le ho
 
 **per leggerlo potete**  
 - [andare sul web](https://docs.google.com/document/d/e/2PACX-1vQRwiANaom26EhtbYZtutYeL-2fAjymjrPLMVab8JFhXCJS-6tZhbRlzBT5uN64oruOdjbD5KI3Oofl/pub)  
-- [scaricarlo in formato pdf](https://drive.google.com/file/d/1_DByHcB7XwEvOEKSn8o94STRQoVUqiLo/view?usp=sharing)  
+- [scaricarlo in formato pdf](interarete-2nd-edition.pdf)  
 - [prenderlo in prestito](https://sbcr.comperio.it/) a Frascati presso la [Bibliteca Carlo Del Vescovo](https://goo.gl/maps/H5r5x6QXrAq1rRXQA)  
 
 **se ne parla qui**  
