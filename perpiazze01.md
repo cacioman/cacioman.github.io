@@ -7,7 +7,7 @@ Mi ritrovo su via Celio Vibenna, quella che dal Colosseo porta al Circo Massimo.
 Le donne sono tantissime, tra il beffardo e il compiaciuto, quasi tutte con il segno rosso sul viso e tra loro diversissime: giovani, anziane, alte, grasse, magre, coi compagni, le compagne, le figlie adolescenti, i figli piccoli, gruppi di amiche, da sole, serie, divertite, ecc. .  
 Una bella sensazione.   
 
-[**qui le foto che ho fatto**]( https://photos.app.goo.gl/iEr31wFNL9LefoyS6), ancora problemi di messa a fuoco: è la fretta
+[**qui le foto che ho fatto**](https://www.flickr.com/gp/cacioman/izc3W5mV20), ancora problemi di messa a fuoco: è la fretta
 
 
 ---  
