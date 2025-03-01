@@ -10,7 +10,7 @@ alcuni hanno il casco appeso allo zaino, a me sembra un vezzo come dire "ho vist
 
 Però ci prendono sul serio, uno mi dice che stanno facendo una cosa, di prepararmi, sì sì, poi alla fine buttano un fumogeno rosso e urla a tutti polmoni, da come stanno rasati e incazzati mi ricordano piùi fasc che i comapgni...  
 
-[**qui le foto che ho fatto**](https://photos.app.goo.gl/gMvCmZgTR8Jr3PxT6)  
+[**qui le foto che ho fatto**](https://www.flickr.com/gp/cacioman/Msxk6H0Re6)  
 
 ---  
 [about me](https://about.me/cacioman) 
