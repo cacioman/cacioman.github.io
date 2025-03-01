@@ -16,7 +16,7 @@ Eppure il gran barbone invece del telefonino potrebbe tirare fuori una pistola e
 
 In ogni caso la raccomandazione per il prossimo Pride è fare attenzione ai camion delle bande musicali: ce ne sono una trentina, attraversano la folla a due all'ora ma tendenzialmente non frenano. Quello della Mucca Assassina mi liscia di poco ma gli ero però ballonzolato davanti più e più volte. "Non è un caso se si chiama assassina questa mucca!.." dico ad una ragazza tanto per fare una bella battuta, quella ride molto, forse troppo: sono veramente molto inclusivi qui al Roma Pride 2023!   
 
-[Qui le foto](https://photos.app.goo.gl/eRtT7wbYzjGXaUJY7) che ho fatto al Pride 2023 e [qui quelle del 2024](https://photos.app.goo.gl/nBqF1zLuZWF1j9Rf6).  
+[Qui le foto](https://www.flickr.com/gp/cacioman/9Ux4LjxaPb) che ho fatto al Pride 2023 e [qui quelle del 2024](https://photos.app.goo.gl/nBqF1zLuZWF1j9Rf6).  
 
 ---  
 [about me](https://about.me/cacioman) 
