@@ -15,7 +15,7 @@ L'intervento di  Hardeep Kaur, segretaria per Latina/Frosine della Flai Cgil, è
 Vedo anche la Boldrini ma non credo abbia parlato. Quando la fotografo mi guarda infastidita. Magari invece interpreto male ed è solo stranita  da uno che vorrebbe fare il fotografo ma gira con un cane attaccato allo zaino.
 
 
-[**qui le foto che ho fatto**](https://photos.app.goo.gl/WdTP7KoGbiKZ7a5S8)  
+[**qui le foto che ho fatto**](https://www.flickr.com/gp/cacioman/zy04EGnP85)  
 
 ---  
 [about me](https://about.me/cacioman) 
