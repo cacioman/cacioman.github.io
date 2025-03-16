@@ -1,5 +1,4 @@
 
-
 - [Europa](https://cacioman.github.io/perpiazze05.html) mar25
 - [pastorale](https://cacioman.github.io/pastorale.html) gen25
 - [Sant'Antonio 2025](https://cacioman.github.io/santantonio25.html) gen25
