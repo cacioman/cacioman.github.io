@@ -9,7 +9,7 @@ Sul palco di piazza del Popolo c'è Claudio Bisio che fa il bravo presentatore e
 Molti parlano di "generazione Erasmus" e a forza di evocarla ne compare una rappresentante in carne e ossa sul palco. Un po' spaesata, risponde a monosillabi a delle domande preparate e così l'argomento "questi giovani meravigliosi" è definitivamente archiviato.    
 All'inizio di tutto questo, tanto per dare ulteriore slancio a questo bel *parterre* di over60, fanno cantare Mauro Pagani con una versione smosciatissima di "Creuza de Ma", è un miracolo che ancora ci riesca. Metà della piazza si è domandava "e chi è questo?", l'altra metà "ma che è ancora vivo?" . Un po' come lo spirito di Ventotene.  
 
-Noi dobbiamo andarcene presto per altri impegni e ci perdiamo quindi la Segre insieme a molti altri virgulti del mondo della cultura e della politica. E' che hanno chiuso le fermate Metro di Spagna e Flaminio e quindi per arrivare in tempo a Termini tocca farsela a piedi fino a Lepanto, a proposito di grandi battaglie contro l'oriente sanguinario che incombe alle porte.    
+Noi dobbiamo andarcene e ci perdiamo quindi la Segre insieme a molti altri virgulti del mondo della cultura e della politica. E' che hanno chiuso le fermate Metro di Spagna e Flaminio e quindi per arrivare in tempo a Termini biosgna muoversi per facendosela a piedi fino a Lepanto, a proposito di grandi battaglie contro l'oriente sanguinario che incombe alle porte.    
 
 [qui](https://www.flickr.com/gp/cacioman/0KNt826gxz) le foto che ho fatto  
 
