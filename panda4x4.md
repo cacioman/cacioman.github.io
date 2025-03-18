@@ -1,5 +1,5 @@
 # Panda 4x4
-### della serie "Tione 6x6" - gen 25
+### della serie "village photography" - gen 25
 
 ![](Link "didascalia")  
 
