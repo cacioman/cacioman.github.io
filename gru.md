@@ -1,5 +1,5 @@
 # Gru
-### della serie "Tione 6x6" - feb25
+### della serie "village photography" - feb25
 
 ![](Link "didascalia")  
 
