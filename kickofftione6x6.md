@@ -8,7 +8,7 @@ Quando esco di casa il tempo è abbastanza grigio, ancora sotto una nuvola stagn
 
 Vado in giro con le macchine fotografiche analogiche, tipo un po’ in posa da maestro del bianco nero (ma con le idee abbastanza poco chiare su cosa fare).
 Ho la stessa focale leggermente grandangolo sia sul formato quadrato della Hasselblad che su quello a rettangolo della Nikon. Si rivela perfetto.  
-Per primo incontro Marcello che traffica con una carriola e dei ciocchettoni di legno.  
+Per primo incontro M. che traffica con una carriola e dei ciocchettoni di legno.  
 “Ti posso fare una foto’?” chiedo, “Contento tu…” risponde e si mette in posa. Direi che è la foto migliore.  
 
 Poi così tutti gli altri che ho incontrato. Anche loro molto disponibili se non divertiti. Mai successo!
