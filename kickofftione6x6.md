@@ -1,9 +1,9 @@
 # kick off
-### della serie "Tione 6x6" - wk#50 2024 
+### della serie "village photography" - wk#50 2024 
 
-![](https://i.postimg.cc/pVCQG6y0/Screenshot-2025-01-13-150726.png "Tione 6x6")  
+![](https://i.postimg.cc/fyNv3j02/Immagine-2025-03-18-094555.jpg "variabile")  
 
-Tione degli Abruzzi (AQ), 600m s.l.m., sabato mattina di metà dicembre.  
+Valle dell'Aterno, 600m s.l.m., sabato mattina di metà dicembre.  
 Quando esco di casa il tempo è abbastanza grigio, ancora sotto una nuvola stagnante sul paese dal mattino presto, poi mano mano schiarisce.  
 
 Vado in giro con le macchine fotografiche analogiche, tipo un po’ in posa da maestro del bianco nero (ma con le idee abbastanza poco chiare su cosa fare).
