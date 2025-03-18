@@ -1,5 +1,5 @@
 # Pastorale  
-### della serie "Tione 6x6" - gen 2025 
+### della serie "village photography" - gen 2025 
  
 ![](https://i.postimg.cc/C5q6DsdM/Screenshot-2025-01-29-144014.png "di vedetta")  
 
