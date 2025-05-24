@@ -13,7 +13,7 @@ Mano mano però ci rimpolpiamo e andiamo tutt* a convergere intorno al camioncin
 
 Punto la macchina fotografica palesemente sopra le teste di un gruppetto di ragazz* sui venticinque-trenta: vorrei fotografare la loro bandiera trans (celeste, rosa e bianca) con sullo sfondo motti fascio-latini scolpiti sul frontone de La Sapienza. Foto sul retorico ma mica sono Salgado e poi tanto la cancellerei. Non la faccio comunque: inaspettatamente quell* del gruppetto mi sparacchiano un paio di schizzi con una pistola ad acqua. Capisco il messaggio e lascio perdere. 
 
-Intanto sul camioncino-palco sale Simonetta Musitano, una *standup comedian* molto energetica. Insieme ad una traduttrice in simultanea del linguaggio dei sordi, fanno una loro bella performance, sopratutto vivace. Sono un'accoppiata perfetta a cui faccio un casino di foto.  
+Intanto sul camioncino-palco sale Simonetta Musitano, una *standup comedian* molto energetica. Insieme ad una traduttrice in simultanea del linguaggio dei sordi, fanno una loro bella performance, sopratutto vivace. Sono un'accoppiata perfetta e io  faccio un casino di foto.  
 
 Improvvisamente mi rendo conto che saremo arrivati già ad un migliaio di persone. Ora c'è anche un numero congruo di poliziotti e qualche altro fotografo in più. Partiamo.  
 
