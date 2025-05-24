@@ -5,7 +5,9 @@
 
 Roma, Piazzale Aldo Moro, manifestazione per "[l’autodeterminazione delle persone trans, intersex e non binarie](https://gender-x.org/2024/07/03/dal-18-maggio-al-roma-pride-un-mese-di-lotta-e-rivendicazioni/)". 
  
-Arrivo una mezz'ora prima della partenza. Sono ancora in pochi, anzi poch* , che dispers* sullo spiazzone metafisico davanti a La Sapienza sembrano anche di meno. Una decina di ragazz* stanno davanti ai cancelli che armeggiano intorno al camioncino dell'amplificazione mentre il grosso, circa un centinaio, se sta riparato sotto l'ombra a ridosso di un muro di cinta dall'altra parte dello stradone. In direzione Policlinico si intravedono dei poliziott* , poch* e poco convint* , insieme a una mezza dozzina tra fotograf* e videomaker, professionist* e non.  
+Arrivo una mezz'ora prima della partenza. Sono ancora in pochi, anzi poch* , che sembrano anche di meno perché dispers* sullo spiazzone metafisico davanti a La Sapienza. 
+
+Una decina di ragazz* stanno davanti ai cancelli che armeggiano intorno al camioncino dell'amplificazione mentre il grosso, circa un centinaio, se sta riparato sotto l'ombra a ridosso di un muro di cinta dall'altra parte dello stradone. In direzione Policlinico si intravedono dei poliziott* , poch* e poco convint* , insieme a una mezza dozzina tra fotograf* e videomaker, professionist* e non.  
 Arriva un Doblò d'annata, sono padre e figlio che fanno scuola guida, hanno le espressioni di malcelato disappunto: per quella domenica pomeriggio contavano su una piazza ancora più vuota.  
 
 Per un'oretta rimaniamo così: poch* , sotto il sole e un po' spallat* .   
