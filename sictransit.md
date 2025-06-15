@@ -3,7 +3,7 @@
 
 ![](https://i.postimg.cc/dVJs0cXr/Immagine-2025-03-16-225952.jpg "Tione, noi siamo conto la vita comoda, prima")   
 
-Improvvisamente di notte, a fine febbraio, è bruciata "la baracchetta ". Un ricovero temporaneo costruito ai tempi del terremoto del 1915 e rimasto in piedi fino ad oggi, nella stessa zona dove poi hanno messo i Moduli Abitativi Provvisori, quelli costruiti per terremoto del 2009.    
+Improvvisamente di notte, a fine febbraio, è bruciata "la baracchetta ". Era un ricovero temporaneo costruito ai tempi del terremoto del 1915 e rimasto in piedi fino ad oggi, nella stessa zona dove poi hanno messo i Moduli Abitativi Provvisori, quelli costruiti per terremoto del 2009.    
 
 Per me era anche una specie di opera concettuale inconsapevole per via di una profonda crepa sulla parete che divideva in due la casa e anche la scritta dei tempi del fascio "A noi non piace la vita comoda".   
 
