@@ -12,7 +12,7 @@ Ora mi viene l'obbligo di mettere in fila questo episodio con altri due che sono
 Del resto lo diceva spesso anche il grandissimo Ferdinando Scianna: i vecchi del suo paese evitavano i fotografi in quanto iettatori, una specie di uccellacci del malaugurio che vedevi da giovane per la foto da militare e da vecchio per quella da mettere sulla lapide.  
 
 Tutto torna e così mi si spiega anche la reazione di H. , l'ambulante magrebino che quando gli ho chiesto se lo potevo fotografare mi ha detto subito di sì ma che valeva per la merce esposta sugli sportelli squadernati della sua FIAT Multipla. Lui si è subito tirato fuori dall'inquadratura, rifiutandosi fieramente di rientrarci.  
-Non mi ha dato spiegazini spiegazioni ma solo ora mi rendo conto che c'era poco da spiegare e insistere come ho fatto io con H. sfiora la maleducazione.  
+Non mi ha dato spiegazioni ma solo ora mi rendo conto che c'era poco da spiegare e aggiungerei che insistere come ho fatto io con H. sfiora la maleducazione.  
   
   
 ![](https://i.postimg.cc/Dw52JYkD/Immagine-2025-03-16-230015.jpg "Tione, baracchetta e ciclisti, dopo ") 
