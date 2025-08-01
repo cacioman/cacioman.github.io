@@ -1,19 +1,10 @@
-
-**analog**  
+**analog**
 - [kick off ](https://cacioman.github.io/kickofftione6x6.html) dic24 
 - [pastorale](https://cacioman.github.io/pastorale.html) gen25
-- [guardare la macchina]() **TBC** 
-- [gru]() **TBC** 
-- [formato]() **TBC** 
-- [demone del gioco]() **TBC** 
-- [chiesa]() **TBC** 
-- 
-    
 - [sic transit](https://cacioman.github.io/sictransit.html) feb25
 
 **in piazza**  
 - [Sant'Antonio 2025](https://cacioman.github.io/santantonio25.html) gen25
-- [Banda]() **TBC** giu25
   
 **cortei**  
 - [tant*](https://cacioman.github.io/perpiazze07.html)  giu25
