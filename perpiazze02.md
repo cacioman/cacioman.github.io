@@ -11,7 +11,7 @@ Conosco bene Latina, i miei sono di qui, c'ho passato qualche estate dai nonni. 
 
 La piazza è riempita per un terzo: prevalentemente braccianti indiani, uomini coi baffoni e turbanti multicolore, qualche loro signora, serissima, e sparuti gruppo della sinistra pontina (da sempre un mezzo ossimoro). Proprio in questa piazza mio padre all'età di diciott'anni vedeva gli amici del liceo. Settant'anni fa. Sono ricordi che sta tirando fuori per la prima volta proprio in questi giorni. Sono racconti senza melanconia o partecipazione e con la demenza confonde i nomi, aggiusta le cose e aggiunge cose del tutto assurde. Si potrebbe dire lo stesso per il discorsetto di circostanza che fa la delegata del comune:  elaborazioni maldestre e preconcette, dette con una certa non curanza e poco senso dell'opportunità. Qualcuno la fischia. Sono pochi: è pur sempre una specie di commemorazione funebre e non è il caso. In definitiva la sfanga.  
 
-L'intervento di  Hardeep Kaur, segretaria per Latina/Frosine della Flai Cgil, è quello più misurato.  
+L'intervento di  Hardeep Kaur, segretaria per Latina/Frosinone della Flai Cgil, è quello più misurato.  
 Vedo anche la Boldrini ma non credo abbia parlato. Quando la fotografo mi guarda infastidita. Magari invece interpreto male ed è solo stranita da uno che vorrebbe fare il fotografo ma [gira con un cane attaccato allo zaino](https://www.youtube.com/live/THARIaidILs?feature=shared&t=4627).
 
 
