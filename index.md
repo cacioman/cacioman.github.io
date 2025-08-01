@@ -1,12 +1,21 @@
 
-**village photography**  
+**analog**  
 - [kick off ](https://cacioman.github.io/kickofftione6x6.html) dic24 
-- [Sant'Antonio 2025](https://cacioman.github.io/santantonio25.html) gen25
 - [pastorale](https://cacioman.github.io/pastorale.html) gen25
-- [sic transit](https://cacioman.github.io/sictransit.html) giu25
+- [guardare la macchina]() **TBC** 
+- [gru]() **TBC** 
+- [formato]() **TBC** 
+- [demone del gioco]() **TBC** 
+- [chiesa]() **TBC** 
+- 
+    
+- [sic transit](https://cacioman.github.io/sictransit.html) feb25
+
+**in piazza**  
+- [Sant'Antonio 2025](https://cacioman.github.io/santantonio25.html) gen25
+- [Banda]() **TBC** giu25
   
-  
-**per piazze**  
+**cortei**  
 - [tant*](https://cacioman.github.io/perpiazze07.html)  giu25
 - [sorrisetti](https://cacioman.github.io/perpiazze06.html) mag25
 - [Europa](https://cacioman.github.io/perpiazze05.html) mar25
@@ -15,7 +24,6 @@
 - [contro il caporalato](https://cacioman.github.io/perpiazze02.html) giu24  
 - [non una di meno](https://cacioman.github.io/perpiazze01.html) nov23
 - [LGBTQ Plus Plus](https://cacioman.github.io/LGTBplusplus.html) giu23
-
 
 ---  
 [about.me/cacioman](https://about.me/cacioman) 
