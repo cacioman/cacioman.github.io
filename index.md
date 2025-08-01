@@ -1,7 +1,7 @@
 **analog**
 - [kick off ](https://cacioman.github.io/kickofftione6x6.html) dic24 
 - [pastorale](https://cacioman.github.io/pastorale.html) gen25
-- [sic transit](https://cacioman.github.io/sictransit.html) feb25
+- [sic transit](https://cacioman.github.io/sictransit.html) mar25
 
 **in piazza**  
 - [Sant'Antonio 2025](https://cacioman.github.io/santantonio25.html) gen25
