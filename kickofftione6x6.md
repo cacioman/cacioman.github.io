@@ -1,5 +1,5 @@
 # kick off
-### della serie "village photography" - wk#50 2024 
+### della serie "sotto al Sirente" - wk#50 2024 
 
 ![](https://i.postimg.cc/fyNv3j02/Immagine-2025-03-18-094555.jpg "variabile")  
 
