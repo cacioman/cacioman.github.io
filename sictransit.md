@@ -1,7 +1,7 @@
 # sic transit    
 ### della serie "sotto al Sirente" - mar25
 
-![](https://i.postimg.cc/dVJs0cXr/Immagine-2025-03-16-225952.jpg "Tione, noi siamo conto la vita comoda, prima")   
+![](https://i.postimg.cc/dVJs0cXr/Immagine-2025-03-16-225952.jpg "Tione, via dei Vestini")   
 
 Improvvisamente di notte, a fine febbraio, è bruciata "la baracchetta ". Era un ricovero temporaneo costruito ai tempi del terremoto del 1915 e rimasto in piedi fino ad oggi, nella stessa zona dove poi hanno messo i Moduli Abitativi Provvisori, quelli costruiti per terremoto del 2009.  
 Per me "la baracchetta" era anche una specie di opera concettuale inconsapevole per via di una profonda crepa sulla parete che divideva in due la casa e la scritta "A noi non piace la vita comoda" risalente ai tempi del fascio.     
@@ -15,7 +15,7 @@ Tutto torna e così mi si spiega anche la reazione di H. , l'ambulante magrebino
 Non mi ha dato spiegazioni ma solo ora mi rendo conto che c'era poco da spiegare e aggiungerei che insistere come ho fatto io con H. sfiora la maleducazione.  
   
   
-![](https://i.postimg.cc/Dw52JYkD/Immagine-2025-03-16-230015.jpg "Tione, baracchetta e ciclisti, dopo ") 
+![](https://i.postimg.cc/Dw52JYkD/Immagine-2025-03-16-230015.jpg "Tione, via dei Vestini") 
 
 ---  
 [about me](https://about.me/cacioman)  
