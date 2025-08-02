@@ -1,7 +1,7 @@
 # Pastorale  
 ### della serie "village photography" - gen 2025 
  
-![](https://i.postimg.cc/C5q6DsdM/Screenshot-2025-01-29-144014.png "di vedetta")  
+![](https://i.postimg.cc/C5q6DsdM/Screenshot-2025-01-29-144014.png "Tione, via dei Vestini")  
 
 C'è questo pastore abruzzese che bazzica dalle parti del comune.  Del pastrore abruzzese ha solo la struttura fisica e gli manca quel tipico atteggiamento schiettamente ombroso e diffidente. Lui invece è abbastanza sul socievole: ti viene sempre incontro anche solo per smusarti e poi riprendere il suo incedere ondivago.  
 
