@@ -1,5 +1,5 @@
 # sic transit    
-### della serie "village photography" - mar25
+### della serie "sotto al Sirente" - mar25
 
 ![](https://i.postimg.cc/dVJs0cXr/Immagine-2025-03-16-225952.jpg "Tione, noi siamo conto la vita comoda, prima")   
 
