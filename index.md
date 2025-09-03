@@ -1,8 +1,8 @@
 **sotto al Sirente**
-- [kick off ](https://cacioman.github.io/kickofftione6x6.html) dic24 
-- [pastorale](https://cacioman.github.io/pastorale.html) gen25
-- [Sant'Antonio](https://cacioman.github.io/santantonio25.html) gen25
-- [sic transit](https://cacioman.github.io/sictransit.html) mar25
+- [kick off ](https://cacioman.github.io/t6x6-001.html) dic24 
+- [pastorale](https://cacioman.github.io/t6x6-002.html) gen25
+- [Sant'Antonio](https://cacioman.github.io/t6x6-101.html) gen25
+- [sic transit](https://cacioman.github.io/t6x6-003.html) mar25
   
 **in piazza**  
 - [tant*](https://cacioman.github.io/perpiazze07.html)  giu25
