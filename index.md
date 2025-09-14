@@ -4,6 +4,7 @@
 - [Sant'Antonio](https://cacioman.github.io/t6x6-101.html) gen25
 - [guardare in macchina](https://cacioman.github.io/t6x6-006.html) gen25  
 - [sic transit](https://cacioman.github.io/t6x6-003.html) mar25
+- [la banda](https://cacioman.github.io/t6x6-008.html) gen25
   
 **in piazza**  
 - [tant*](https://cacioman.github.io/perpiazze07.html)  giu25
