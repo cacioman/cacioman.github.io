@@ -5,7 +5,7 @@
 - [guardare in macchina](https://cacioman.github.io/t6x6-006.html) gen25  
 - [guardare gru che crescono](https://cacioman.github.io/t6x6-011.html) feb25  
 - [sic transit](https://cacioman.github.io/t6x6-003.html) mar25
-- [la banda](https://cacioman.github.io/t6x6-008.html) gen25
+- [la banda](https://cacioman.github.io/t6x6-008.html) giu25
   
 **in piazza**  
 - [tant*](https://cacioman.github.io/perpiazze07.html)  giu25
