@@ -9,6 +9,7 @@
 
   
 **foto di piazza**  
+- [L'Aquila pro Gaza](https://www.flickr.com/gp/cacioman/0q4x4zdg2u) set25
 - [tant*](https://cacioman.github.io/perpiazze07.html)  giu25
 - [sorrisetti](https://cacioman.github.io/perpiazze06.html) mag25
 - [Europa](https://cacioman.github.io/perpiazze05.html) mar25
