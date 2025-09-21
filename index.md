@@ -20,8 +20,10 @@
 - [LGBTQ Plus Plus](https://cacioman.github.io/LGTBplusplus.html) giu23
 
 **altro**  
-- [intera rete](https://cacioman.github.io/interarete.html) 2020
-- [leggere l'Orestea a Rebibbia](https://cacioman.github.io/LeggereOresteaRebibbia.pdf)  2022
+- ["vedo gente, faccio code"](https://cacioman.substack.com) la newsletter per rimanere aggiornati  
+- [Video Insulsi](https://www.youtube.com/@ClaudioGatti44) il mio canale di video abbastanza insulsi (ma almeno durano poco)  
+- [intera rete](https://cacioman.github.io/interarete.html) un libro sulla magia del trasporto pubblico romano   
+- [leggere l'Orestea a Rebibbia](https://cacioman.github.io/LeggereOresteaRebibbia.pdf) un articolo sullo studio dei classici in carcere  
 
 ---  
 [about.me/cacioman](https://about.me/cacioman) 
