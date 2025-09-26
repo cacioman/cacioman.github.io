@@ -1,3 +1,7 @@
+# vero l'infinito e oltre  
+### della serie "cartoline" - lug 25 
+
+![](https://i.postimg.cc/wvXdk5rK/2025-03-15-12-04-18.jpg "Giuseppe Pasqualoni")
 
 
 La cartolina di questa volta arriva da una tomba vista per caso con altre al cimitero Laurentino. Penso sia una foto di quando questo signor Giuseppe era giovane, non di quando è mancato. Una di quelle che stavano a casa del signor Giuseppe da sempre incorniciata in evidenza con altre (al matrimonio, coi figli, col papa, da militare, non so). Una bella foto.
@@ -9,3 +13,6 @@ A conclusione di uno di quei battibecchi tra professore supplente e studenti che
 Presi come da incantamento, ammutolimmo tutti di fronte all’evidenza delle cose: dato un arco temporale piccolo a piacere t0-t1 il facocero era stato un ragazzo, coi capelli invece delle setole e anche tutto il resto.
 
 E così ci sovvenne l’eterno e le morte stagioni e la presente e viva e il suon di lei.
+
+---  
+[about me](https://about.me/cacioman) 
