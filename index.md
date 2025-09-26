@@ -1,13 +1,20 @@
-**village photography**
-- [la banda](https://cacioman.github.io/t6x6-008.html) giu25
-- [sic transit](https://cacioman.github.io/t6x6-003.html) mar25
-- [guardare gru che crescono](https://cacioman.github.io/t6x6-011.html) feb25
-- [guardare in macchina](https://cacioman.github.io/t6x6-006.html) gen25  
-- [pastorale](https://cacioman.github.io/t6x6-002.html) gen25
-- [Sant'Antonio](https://cacioman.github.io/t6x6-101.html) gen25
-- [kick off ](https://cacioman.github.io/t6x6-001.html) dic24 
 
-  
+**sotto al Sirente**  
+
+- [kick off ](https://cacioman.github.io/t6x6-001.html) dic24
+- [Sant'Antonio](https://cacioman.github.io/t6x6-101.html) gen25
+- [pastorale](https://cacioman.github.io/t6x6-002.html) gen25
+- [guardare in macchina](https://cacioman.github.io/t6x6-006.html) gen25  
+- [guardare gru che crescono](https://cacioman.github.io/t6x6-011.html) feb25
+- [sic transit](https://cacioman.github.io/t6x6-003.html) mar25
+- [la banda](https://cacioman.github.io/t6x6-008.html) giu25
+
+---
+[about.me/cacioman](https://about.me/cacioman) 
+
+<!--  
+**village photography**
+
 **foto di piazza**  
 - [CGIL pro Gaza](https://cacioman.github.io/perpiazze08.html) set25
 - [tant*](https://cacioman.github.io/perpiazze07.html)  giu25
@@ -23,7 +30,4 @@
 - ["vedo gente, faccio pose"](https://cacioman.substack.com) una newsletter di pensamenti ed esperienze fotografiche   
 - [Video Insulsi](https://www.youtube.com/@ClaudioGatti44) il mio canale di video abbastanza insulsi (ma almeno durano poco)  
 - [intera rete](https://cacioman.github.io/interarete.html) un libro sulla magia del trasporto pubblico romano   
-- [leggere l'Orestea a Rebibbia](https://cacioman.github.io/LeggereOresteaRebibbia.pdf) un articolo sullo studio dei classici in carcere  
-
----  
-[about.me/cacioman](https://about.me/cacioman) 
+- [leggere l'Orestea a Rebibbia](https://cacioman.github.io/LeggereOresteaRebibbia.pdf) un articolo sullo studio dei classici in carcere  --!>  
