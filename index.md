@@ -10,7 +10,7 @@
 - [la banda](https://cacioman.github.io/t6x6-008.html) giu25
 
 ---
-[about.me/cacioman](https://about.me/cacioman) 
+[about.me](https://about.me/cacioman) 
 
 <!--  
 
