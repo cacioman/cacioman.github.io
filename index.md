@@ -13,7 +13,6 @@
 [about.me/cacioman](https://about.me/cacioman) 
 
 <!--  
-**village photography**
 
 **foto di piazza**  
 - [CGIL pro Gaza](https://cacioman.github.io/perpiazze08.html) set25
@@ -26,8 +25,16 @@
 - [non una di meno](https://cacioman.github.io/perpiazze01.html) nov23
 - [LGBTQ Plus Plus](https://cacioman.github.io/LGTBplusplus.html) giu23
 
+**cartoline**  
+- [verso l'Infinito e oltre](https://cacioman.github.io/cartoline00.html)  
+
+**una settimana così**  
+
+
 **altro**  
 - ["vedo gente, faccio pose"](https://cacioman.substack.com) una newsletter di pensamenti ed esperienze fotografiche   
 - [Video Insulsi](https://www.youtube.com/@ClaudioGatti44) il mio canale di video abbastanza insulsi (ma almeno durano poco)  
 - [intera rete](https://cacioman.github.io/interarete.html) un libro sulla magia del trasporto pubblico romano   
-- [leggere l'Orestea a Rebibbia](https://cacioman.github.io/LeggereOresteaRebibbia.pdf) un articolo sullo studio dei classici in carcere  --!>  
+- [leggere l'Orestea a Rebibbia](https://cacioman.github.io/LeggereOresteaRebibbia.pdf) un articolo sullo studio dei classici in carcere  
+
+--!>  
